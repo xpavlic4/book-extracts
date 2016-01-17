@@ -2,15 +2,18 @@
 
 ## Optimism
 you could be the best
+
 smile a bit before each putt
+
 before going to bed, replay your round with edited bad shots
+
 correlation between success & optimism is not clear,
 whereas correlation between failure & negative thinking is clear
 
 ## Confident Self-image
 mental preparation - 15-20 minutes before sleep
-	1. must be detailed, vivid
-	2. persuade unconsciousnes mind it happened
+	* must be detailed, vivid
+	* persuade unconsciousnes mind it happened
 	
 ## Respecting your talent
 you have to be a legend in your own mind
@@ -22,12 +25,14 @@ Fall in love with golf.
 Train in and trust it. Subconscious will guide you.
 Never give in to doubt, fear or fatique.
 
-# Dream, Goals and rocess
+## Dream, Goals and rocess
 create a dream and use it as a process
 step-by-step goal
-	1. 10x onto green from a bunker
-	2. 10x close to the hole
-	3. 10x up&down
+
+	* 10x onto green from a bunker
+	* 10x close to the hole
+	* 10x up&down
+	
 low goals mean you are not going to fail
 aim high, people have to think you are crazy
 
