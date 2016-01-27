@@ -1,4 +1,4 @@
-IConcentration
+Concentration
 --
 
 Broad - between shots
@@ -33,23 +33,22 @@ Goal-setting matrix
 
 Pyramid
 --
-Calculate
+
+### Calculate
   * distance
   * wind/temperature
   * elevation
   * hazards
 
-Create
+### Create
   * feel it
   * see it
 
-Execute
+### Execute
   * known mind state
 
 Attitude
 --
-Mind-set - **fixed** vs. **growth**
-
 | Fixed | | Growth|
 |---|
 |Avoided| Challenges | Embraced|
