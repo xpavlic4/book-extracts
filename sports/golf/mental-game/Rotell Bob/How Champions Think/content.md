@@ -19,7 +19,7 @@ mental preparation - 15-20 minutes before sleep:
 ## Respecting your talent
 you have to be a legend in your own mind
 
-before you can be a legent in your own time.
+before you can be a legend in your own time.
 
 ## Commitment
 Devise a plan and commit yourselft to it, persevere.
