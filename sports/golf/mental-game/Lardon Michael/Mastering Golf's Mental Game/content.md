@@ -1,5 +1,4 @@
-Concentration
---
+##Concentration
 
 Broad - between shots
 
@@ -11,18 +10,19 @@ Narrow - executing shots
 | experiment | think strategic only
 | games | no swing thought or just simple
 
-Focus dimensions
---
-||external|
-|-|
-|broad||narrow
-||internal||
+##Focus dimensions
 
+|   |   |   |
+| --- | ---| ---|
+| - | external | - |
+| broad | - | narrow |
+| - | internal| - |
 
-||competing|
-|--|
-|between shots| | exec. shots |
-| | practicing | |
+|   |   |   |
+| --- | ---| ---|
+| - |competing| - |
+|between shots| - | exec. shots |
+| -| practicing | -|
 
 Goal-setting matrix
 --
@@ -49,6 +49,8 @@ Pyramid
 
 Attitude
 --
+|   |   |   |
+| --- | ---| ---|
 | Fixed | | Growth|
 |---|
 |Avoided| Challenges | Embraced|
