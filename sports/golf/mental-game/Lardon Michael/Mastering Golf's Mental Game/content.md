@@ -26,10 +26,12 @@ Narrow - executing shots
 
 Goal-setting matrix
 --
-| Process | Result
-|--|
-|Improve mental game | Lower hcp to 5|
-|Mental scorecard |   |
+
+|   |   |
+| Process | Result |
+| -- | |
+| Improve mental game | Lower hcp to 5|
+| Mental scorecard |   |
 
 Pyramid
 --
