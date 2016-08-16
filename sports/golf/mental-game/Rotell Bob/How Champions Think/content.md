@@ -14,23 +14,23 @@ whereas correlation between failure & negative thinking is clear
 mental preparation - 15-20 minutes before sleep:
 
 	* must be detailed, vivid
-	* persuade unconsciousnes mind it happened
-	
+	* persuade unconsciousness mind it happened
+
 ## Respecting your talent
 you have to be a legend in your own mind
 
 before you can be a legend in your own time.
 
 ## Commitment
-Devise a plan and commit yourselft to it, persevere.
+Devise a plan and commit yourself to it, persevere.
 
 Fall in love with golf.
 
 Train in and trust it. Subconscious will guide you.
 
-Never give in to doubt, fear or fatique.
+Never give in to doubt, fear or Fatigue.
 
-## Dream, Goals and rocess
+## Dream, Goals and process
 create a dream and use it as a process
 
 step-by-step goal
@@ -38,7 +38,7 @@ step-by-step goal
 	* 10x onto green from a bunker
 	* 10x close to the hole
 	* 10x up&down
-	
+
 low goals mean you are not going to fail
 
 aim high, people have to think you are crazy
@@ -46,14 +46,14 @@ aim high, people have to think you are crazy
 ## Being single-minded
 single minded person putts in time to meet his standard high
 
-always seek and discover a reason to belive in you
+always seek and discover a reason to believe in you
 
 ## Performance process
 think of "process" and "spot" when putting
 
 train it and trust it
 
-commit to first instinkt
+commit to first instinct
 
 	1. club selection
 	2. target
@@ -61,7 +61,7 @@ commit to first instinkt
 
 do not clutter mind with conscious thoughts
 
-practice putting with one bll only inc. routine
+practice putting with one ball only inc. routine
 
 subconscious should govern your moves
 
@@ -77,8 +77,8 @@ don't evaluate in the middle of the round
 
 keep separate list of practice and performance goals
 
-## Going thgouth the fire
-be resilient 0 find something you can cling to 
+## Going through the fire
+be resilient 0 find something you can cling to
 
 failure is needed
 
@@ -96,22 +96,22 @@ safety and severity important for an individual, not exceptional people
 
 competition is needed to push you to the highest level
 
-## Surround yourselft with right people
-people must belive in you
+## Surround yourself with right people
+people must believe in you
 
-stay with one couch forever
+stay with one coach forever
 
 ## Stick with bread and butter
 stick whit one swing, listen to your trainer and ignore tips from others
 
 ## Reality
-belive in your reality
+believe in your reality
 
 short-term goals should be realistic
 
 dreams unbounded
 
-crete a persona and belive in it
+create a persona and believe in it
 
 safe, secure and ultimately dull life is not what exceptional people live
 
