@@ -4,6 +4,7 @@ Reframe doubt - When I hear doubt but it is meaningless.
 
 Capacity
  *  the same for every person
+ 
 Capability
  * you are capable to do now
 
