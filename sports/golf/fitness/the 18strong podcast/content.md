@@ -1,10 +1,16 @@
-# 122 Episode
-## Mindset Manifesto
+# 120 Episode RyanMoore's coach
+
+fitness is important
+
+play your game no matter what others play (may outdrive you)
+
+# 122 Episode Mindset Manifesto
+
 Reframe doubt - When I hear doubt but it is meaningless.
 
 Capacity
  *  the same for every person
- 
+
 Capability
  * you are capable to do now
 
