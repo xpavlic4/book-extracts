@@ -4,6 +4,10 @@ Do the thing you fear the most.
 
 Comfortable emptiness - do not thing much and be yourself and you can perform at best. But you have to earn it through experiences.
 
+When you lose or win no matter what you enjoy/cope with the feeling for 10 days, but 11th day you get to the normal life again. Otherwise you have big lows and big hight which is no good for you family life.
+
+get up super eary 4:30, 2x-3x HIIT, drink water, drink, 30-40 minutes
+
 # 110 Win or loses
 
 Suzan Luci lost 19 consecutive times. Do not define success in big way, just steps how to get there. Failures are building block how to play.
