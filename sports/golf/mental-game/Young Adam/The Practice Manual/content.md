@@ -18,3 +18,10 @@ Female pro | 90 - 100
 Male scratch | 100 - 110
 Male pro | 110 - 120
 Long drive pro | 120 - 140
+
+# Loft
+To change loft you simple change the club or forward leaning. Can be achieved by moving the ball further forwards in the stance to increase or moving the ball back in the stance to decrease loft.
+
+# Angle of attack
+refers to whether the club hits the ball while travelling down steeply or shallow.
+With driver you hit up, i.e. positive AOA
