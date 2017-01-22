@@ -1,11 +1,11 @@
-##Zones in sport
+## Zones in sport
 
 * Flow - lost in addiction
 * The arouseal zone - short flw at accelerated level
 * The panless zone - pain is numbed
 * The long-term zone - over a season
 
-##Pressure management
+## Pressure management
 
 Say aloud - "I have choked"
 
@@ -13,7 +13,7 @@ feelings before important shots shows you motivates
 
 constant selfciricism causes self-doubt
 
-###Process
+### Process
 * self-diagnose - identify a problem and name it
 * get rid of it
 * practice - empty yourselft of the destrucive attachement
