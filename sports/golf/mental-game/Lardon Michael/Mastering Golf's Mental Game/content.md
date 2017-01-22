@@ -1,4 +1,4 @@
-##Concentration
+## Concentration
 
 Broad - between shots
 
@@ -10,7 +10,7 @@ Narrow - executing shots
 | experiment | think strategic only
 | games | no swing thought or just simple
 
-##Focus dimensions
+## Focus dimensions
 
 |   |   |   |
 | --- | ---| ---|
@@ -28,9 +28,9 @@ Goal-setting matrix
 --
 
 | Process | Result |
-| --- | ---| 
+| --- | ---|
 | Improve mental game | Lower hcp to 5|
-| Mental scorecard |   |
+| Mental scorecard | .  |
 
 Pyramid
 --
@@ -50,10 +50,8 @@ Pyramid
 
 Attitude
 --
-|   |   |   |
-| --- | ---| ---|
-| Fixed | | Growth|
-|---|
+| Fixed |  | Growth|
+|---| --- | ---
 |Avoided| Challenges | Embraced|
 |Ignored| Criticism| learned from|
 |Threatened| Other's success| Inspired|
