@@ -78,7 +78,7 @@ don't evaluate in the middle of the round
 keep separate list of practice and performance goals
 
 ## Going through the fire
-be resilient 0 find something you can cling to
+be resilient - find something you can cling to
 
 failure is needed
 
@@ -88,7 +88,8 @@ full routine before every practice shot
 refresh mind with family, leave work at the office
 
 ## Competition
-pay attention to competition during practice ignore during the round
+pay attention to competition during practice
+* ignore during the round
 
 play your game
 
