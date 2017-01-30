@@ -1,3 +1,19 @@
+
+# 124 Perform under pressure
+
+Mental management practice means every shot is perfect. When you practice, not every shot you would like to cement into your unconsciousness.
+
+Perform better when in pressure or have fun in it.
+
+You have to swing unconscious. Self-image, you have to like to hit the ball. You build your Self-image be either hitting the ball in real or mastering mental exercises. That's called mental management.
+
+Knowledge without actions is hurting you, because it sets expectations you are not going to make. Stop trying and start training.
+
+Habits - keeping up is better than catching up.
+
+Victim mentality vs. Hero mentality - Sacrify your life, overweight vs be in shape and lead by examples (to your kids)
+
+
 # 117 Opposite side
 
 driver golf performence website
