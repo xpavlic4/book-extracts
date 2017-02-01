@@ -1,4 +1,8 @@
 
+# 125 interview with Scott Stallings
+
+It is difficult to prove that working out won't help your game.
+
 # 124 Perform under pressure
 
 Mental management practice means every shot is perfect. When you practice, not every shot you would like to cement into your unconsciousness.
