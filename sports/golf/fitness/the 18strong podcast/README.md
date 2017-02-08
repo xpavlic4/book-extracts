@@ -1,4 +1,18 @@
 
+# 126 Archieve anything with a lot of hustle with Anthony Trucks
+
+Is this the right work? People are scared. Chase what scares you.
+
+* See what is going on. Accept what is good and what is bad. See what are you capable of doing.
+* Sacrify your time, good and bad sacrifices.
+  * Good: comfort zone
+  * Bad: relationships, health
+* Sustain
+
+Find the reason why you are on the train. It came accidently. Eg. I want to loose some weight. Now ask 7 more times why. Why do you want to loose some weight? To fit into the jeans. Why do you want to fit into the jeans? So my husband doesnt think I am fat. Why do you want your husband not think you are fat? It is threatening my relationship...
+
+Time that ordinary people waste extraordinary leverage. If you say yes to something new you said no to something you have already said yes to. Try to block off time on calendar where you have white spots - nothing to do. And fill those with your goals.
+
 # 125 interview with Scott Stallings
 
 It is difficult to prove that working out won't help your game.
