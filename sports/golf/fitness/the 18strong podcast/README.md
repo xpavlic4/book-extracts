@@ -1,3 +1,9 @@
+# 129 Webb Simpson
+
+* If you are going to be at gym, be at the gym. If you gonna be at home, be at home.
+* Have realistic goals. If you haven't won any tournament, your goal is be in contention
+* being present in what you do
+
 # 128 Powe of Focus Henry Boulton
 
 at the end of Analysis phase ask yourself a question - what would a good shot look like?
