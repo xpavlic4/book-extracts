@@ -1,3 +1,7 @@
+# 130 Simple Fundamentals for par4success
+
+Everything happens for a reason.
+
 # 129 Webb Simpson
 
 * If you are going to be at gym, be at the gym. If you gonna be at home, be at home.
