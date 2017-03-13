@@ -59,10 +59,3 @@ Two people talking, microphones at different distances from speakers
  The problem is to seperate two clean sources of speakers. Easy to do in MATLAB or Octave.
 
 ## Linear Regression
-Notation (used throughout the course)
-m = number of training examples
-x's = input variables / features
-y's = output variable "target" variables
-(x,y) - single training example
-(xi, yj) - specific example (ith training example)
-i is an index to training set
