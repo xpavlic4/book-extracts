@@ -16,4 +16,19 @@ Remedy 2:
 * self-fulfilling prophecies - something happened in the past will happen again
 * do not assume/generalize that history will repeat inself in negative/positive way
 
-Syndrome 3: 
+Syndrome 3: I will do it again
+* pessimist or negative thinker do not achieve
+* every bad thing is a sign, you are searching for a negative labels and internalize them, live by them
+
+Remedy 3:
+* use positive labels instead
+
+Syndrome 4: I am not that good.
+* self-desctruction denial of success
+* hard to develop a confidence with this syndrome
+
+Remedy 4:
+* reward yourself for good shots
+* learn and accept compliments and integrate them into your identity
+* see failures as learning experiences
+
