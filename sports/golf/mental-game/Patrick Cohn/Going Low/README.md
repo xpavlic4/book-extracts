@@ -32,3 +32,31 @@ Remedy 4:
 * learn and accept compliments and integrate them into your identity
 * see failures as learning experiences
 
+Syndrome 5: Can't make mistakes
+* most perfectionists have this one
+* analyzing rounds based on have many mistakes you made
+
+Remedy 5: 
+* forget about playing a perfect round, there will always be mistakes
+
+Syndrome 6: I don't have it today
+* thinking a perfect round is possible only when all parts of game are excellent
+
+Remedy 6:
+* focus on your strengths
+* good putting and course management can save any round
+
+## Catching momentum
+* prepare yourself mentally by believing you can play well
+* recall good experiences
+* do not concern with a poor warmup - doens't mean anything
+* get momentum from good shots early in the round
+* play shot by shot, no expectations about final score
+* don't make any generalizations about your round based on history, stay confident during shaky start (things can turn around pretty quickly)
+
+## Regain momentum when it's lost
+
+* play every hole as a mini-game (you start fresh after every hole)
+* "I am just not lucky today" means you are looking for/ expecting bad events to happen
+
+
