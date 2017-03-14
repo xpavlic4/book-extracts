@@ -59,4 +59,112 @@ Remedy 6:
 * play every hole as a mini-game (you start fresh after every hole)
 * "I am just not lucky today" means you are looking for/ expecting bad events to happen
 
+## Transcending mechanics in the zone
 
+when playing think only the target and the feeling of desired shot
+playing target golf is playing in the zone
+develop feeling of a good swing
+
+## Plaing target golf
+
+one wing thought max. during the play
+brain cannot process multiple thoughts
+best swing-thoughts are tempo-related
+the image of a target is all you need to initiate a golf swing
+
+## Practicing
+one teacher in life, one philosophy (switching teachers is time-consuming)
+stop beating golf balls on the range (simulate play on-course instead, every shot must have a purpose)
+
+## Finding the flow
+
+best players score the best when they play simple
+do not focus on score during your play
+when you try really hard to be better your mind will be occupied by working all the details. play simple instead
+leave your life problems at home, play with clear mind
+don't overanalyze - e.g. overreading green (your brain has too many inputs and cannot decide what to do)
+
+## playing boring golf
+understanding what you are capable of
+
+### home-course traps 
+* where you know people you play with
+* you care about people you play with
+
+Social evaluations
+* fear of being the center of attention
+* negative group dynamics (willingness to let others in the group affect one's performance)
+
+## Type of negative emotions
+*fear of loosing a tournament with a big lead
+* anxiety of playing with a lead
+* frustration after a bogey
+
+## Mental traps
+* need for approval (to be liked by others) is caused by low self-esteem
+* fear of embarrasment (of hitting a bad shot) 
+    - solution "There is nothing to fear but fear itself", ie. you can breathe, you are safe, you do not have to fear anything
+
+*stage fright - fear of being the center of attention
+
+## need for approval
+either you belive in yourself or you seek confidence from others. others do not judge you based on how good or bad you play.
+
+## flow
+you do not worry what others think about you
+you are totally absorbed in the immediate shot without consequences
+you are instinctively reacting to environment
+
+## Requirements to get into flow
+
+clear goals plus feedback how you are doing, goal is e.g. shot at the target with clean impact
+become immerse in the task
+perception of the difficulty of the task
+ * boredom interrupts flow (too easy)
+ * anxiety interreupts flow (too difficult)
+
+## When you are playing a good round
+never think about final score
+never count an easy holes to bring birdies
+dont back off. never
+play fearless but still percentage golf
+get as far as possible
+follow a game plan
+* targets off the tee
+* hole strategy
+* commit to the plan no matter what
+
+when feeling pressure - lock your mind into pre-shot routine
+
+## Signs that golf is too important for you
+golf workaholic - other facets of life suffer
+daily routine is arranged around golf, golf practice is 1st priority
+conscious mind is golf only, off-time you still have golf on your mind
+you feel angry when not practicing or playing
+obsessed with playing well, perfectionist
+thrill of competition acts like a drug
+you want to give up cause you cannot play up to your expectations
+mental and physical  burnout of golf
+
+## golf is not a reflection of who you are
+play good => feel good
+play bad -> feel good too
+self-worth is not linked to 
+self-esteem must be based on my values as a person
+people in your life will still love you no matter how good golfer(father, husband, bussinessman) you are
+
+## balance in your life
+following 
+1. self-care/health
+2. family and friends
+3. career
+4. reacreation/hobies
+
+## pressure
+pressure comes from worrying about outcomes
+working the process is the best method to achieve good outcomes
+e.g. thinking about making a putt for par is outcome focus - not desired
+think about a process instead - tasks that lead to making the putt
+be immersed in smaller tasks
+
+    
