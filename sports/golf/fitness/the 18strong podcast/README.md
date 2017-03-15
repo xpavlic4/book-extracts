@@ -1,3 +1,7 @@
+# 131 soft tissue mobility
+
+foam rolling before anything at home
+
 # 130 Simple Fundamentals for par4success
 
 Everything happens for a reason.
