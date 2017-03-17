@@ -1,3 +1,48 @@
+# 131 soft tissue mobility
+
+foam rolling before anything at home
+
+# 130 Simple Fundamentals for par4success
+
+Everything happens for a reason.
+
+# 129 Webb Simpson
+
+* If you are going to be at gym, be at the gym. If you gonna be at home, be at home.
+* Have realistic goals. If you haven't won any tournament, your goal is be in contention
+* being present in what you do
+
+# 128 Powe of Focus Henry Boulton
+
+at the end of Analysis phase ask yourself a question - what would a good shot look like?
+
+if you look at the ball, your awareness and your eyes are on the ball. Now if you look at the target, your eyes don't know where to go. So if you see the bunker you concentrate on the bunker. Whereas when you first move you awareness and than your eyes, than your eyes know where to go. Try it: look at the right right corner of your monitor and than move your eyes to the left corner. Now try to look at the right corner and move awareness to the left corner. And now try to move your eyes. Now see the difference. Your brain knows where to go.
+
+Correct pre-shot routine: your eyes and awareness are on the target. Your awareness comes back to the ball, your eyes comes back to the ball and your awareness goes to the target and hit the ball.
+
+Practice: Move awareness prior to eyes to different objects in your room.
+
+Breatheing exercise: As you breathe in, your stomach goes out, as you breate out your stomach goes in.
+
+http://www.ifocusband.com/
+
+
+# 127 Golf life Perfomance with Jordan Jeske
+
+
+# 126 Archieve anything with a lot of hustle with Anthony Trucks
+
+Is this the right work? People are scared. Chase what scares you.
+
+* See what is going on. Accept what is good and what is bad. See what are you capable of doing.
+* Sacrify your time, good and bad sacrifices.
+  * Good: comfort zone
+  * Bad: relationships, health
+* Sustain
+
+Find the reason why you are on the train. It came accidently. Eg. I want to loose some weight. Now ask 7 more times why. Why do you want to loose some weight? To fit into the jeans. Why do you want to fit into the jeans? So my husband doesnt think I am fat. Why do you want your husband not think you are fat? It is threatening my relationship...
+
+Time that ordinary people waste extraordinary leverage. If you say yes to something new you said no to something you have already said yes to. Try to block off time on calendar where you have white spots - nothing to do. And fill those with your goals.
 
 # 125 interview with Scott Stallings
 
