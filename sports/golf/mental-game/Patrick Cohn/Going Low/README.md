@@ -167,4 +167,74 @@ e.g. thinking about making a putt for par is outcome focus - not desired
 think about a process instead - tasks that lead to making the putt
 be immersed in smaller tasks
 
-    
+# Personal scoring zones
+
+* scoring zone is your comfort zone, eg. I always score 90
+* breaking scor. zone unlocks confidence to shot lower
+
+* disqualifying the positive things or downplay achievements, attribute good shots to luck doesn't contribute to confidence
+
+people attribute success or failure to:
+1. effort
+2. ability ("I don't have the ability" what people usually say who do not have a confidence)
+3. difficulty of task (difficult course rating)
+4. luck e.g. "out of luck today"    
+
+## Thinking beyond the box
+* self-image "I shot in the 80s" is limiting you, use self-talk to internalize "I am good putter and improve short game" instead.
+* self-talk has to be positive & self-empowering
+
+## Reward yourself
+* don't make excuses, don't attribute low scores to luck
+* recall what you did good
+* review with rose-colored glasses
+* reward yourself after a good round (beer, chocolate etc.)
+
+## Set goals
+* goals are not expectations
+* goals are e.g. number of GIRs or FIRs, total putts, birdie oportunities, number of 3-putts, number of up/downs
+
+
+## Acknowledge your fears
+if you play for fun - ignore fears
+if you want to win tournaments
+* face fear face-on
+* ask yourself "What's the worst thing that could happen?", it is usually nothing serious
+* if you fail, your true friends or family will still love you
+* if you win, everybody will forget that sooner or later
+
+# Breaking 80 or 70
+## On the way to the course
+1. check all clubs
+2. rain gear, umbrella if weather ask for it
+3. glove + extra one
+4. set up a course strategy
+ * what club at what tee
+ * small targets to aim at
+ * par-5s layups
+ * follow game-plan no matter what
+
+play favourite song in the car to get you in the mood
+
+free your mind of any expectations of target score, only exception is (# of GIRs or FIRs)
+
+## Warming up
+* visualize shots on driving range
+* full mental preshot routine every shot
+* no swing mechanic, no swing changes, swing what you have now
+
+# First tee shot
+* visualize the shot
+* relax and talk with partners
+* write your goal on the scorecard
+* focus on the process
+* if you are not ready than restart the routine
+
+## Opening holes
+* stick to the plan
+* plan percentage shots
+* if you start bumpy look for positive signs
+
+## Middle holes
+* don't add up your score for front nine
+* if you play good you know 
