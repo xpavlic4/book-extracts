@@ -12,7 +12,7 @@ Remedy 1:
 
 Syndrom 2: Here I go again
  * double bogey, high number, blowing the lead in the beginning
-Remedy 2: 
+Remedy 2:
 * self-fulfilling prophecies - something happened in the past will happen again
 * do not assume/generalize that history will repeat inself in negative/positive way
 
@@ -36,7 +36,7 @@ Syndrome 5: Can't make mistakes
 * most perfectionists have this one
 * analyzing rounds based on have many mistakes you made
 
-Remedy 5: 
+Remedy 5:
 * forget about playing a perfect round, there will always be mistakes
 
 Syndrome 6: I don't have it today
@@ -87,7 +87,7 @@ don't overanalyze - e.g. overreading green (your brain has too many inputs and c
 ## playing boring golf
 understanding what you are capable of
 
-### home-course traps 
+### home-course traps
 * where you know people you play with
 * you care about people you play with
 
@@ -96,16 +96,16 @@ Social evaluations
 * negative group dynamics (willingness to let others in the group affect one's performance)
 
 ## Type of negative emotions
-*fear of loosing a tournament with a big lead
+* fear of loosing a tournament with a big lead
 * anxiety of playing with a lead
 * frustration after a bogey
 
 ## Mental traps
 * need for approval (to be liked by others) is caused by low self-esteem
-* fear of embarrasment (of hitting a bad shot) 
+* fear of embarrasment (of hitting a bad shot)
     - solution "There is nothing to fear but fear itself", ie. you can breathe, you are safe, you do not have to fear anything
 
-*stage fright - fear of being the center of attention
+* stage fright - fear of being the center of attention
 
 ## need for approval
 either you belive in yourself or you seek confidence from others. others do not judge you based on how good or bad you play.
@@ -149,12 +149,12 @@ mental and physical  burnout of golf
 ## golf is not a reflection of who you are
 play good => feel good
 play bad -> feel good too
-self-worth is not linked to 
+self-worth is not linked to
 self-esteem must be based on my values as a person
 people in your life will still love you no matter how good golfer(father, husband, bussinessman) you are
 
 ## balance in your life
-following 
+following
 1. self-care/health
 2. family and friends
 3. career
@@ -166,5 +166,3 @@ working the process is the best method to achieve good outcomes
 e.g. thinking about making a putt for par is outcome focus - not desired
 think about a process instead - tasks that lead to making the putt
 be immersed in smaller tasks
-
-    
