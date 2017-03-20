@@ -34,12 +34,13 @@ Phases:
 5. Evaluation of ball in flight
 
 ## Club throwing experiment
-backwing to downswing ration is 3 to 1 (normal) vs 2:1 (in throwing), i.e. many people try to slow down before impact
+Experiment where you should swing the club without a ball on the ground and try to release it towards the target.
+Backwing to downswing ration is 3 to 1 (normal) vs 2:1 (in throwing), i.e. many people try to slow down before impact
 understanding is the lowest step in learning
 
 ## Coaching
 - Coach only when asked, let pupil decide when they want.
-- Coach only whan you are asked to coach. (coaching the length of backswing means don't comment on weight shift)
+- Coach only when you are asked to coach. (coaching the length of back-swing means don't comment on weight shift)
 - Set time limit for coaching.
 
 ## Teaching a child
