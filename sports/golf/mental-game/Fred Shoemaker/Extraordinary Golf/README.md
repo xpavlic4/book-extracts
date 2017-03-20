@@ -48,40 +48,40 @@ understanding is the lowest step in learning
 * ask "what did you learn" instead of "what did you shot"
 * lead by examples (child learn by who you are not by what you say)
 
-## learning
+## Learning
 Learning and growth require a willingness to explore and take risks which often leads to confusion and discomfort.
 
-## trust
-Things in your head are you cannot trust, only things ingraid in your body. Swing is so complicated you cannot govern in consciously. I.e. swing without a swing thought
+## Trust
+Things in your head are those you cannot trust, only things ingrained in your body. Swing is so complicated you cannot govern it consciously. That's why you should swing without a swing thought
 
-## competition
-it is you versus you (your competitor supports you in your growth). your competitor is your ally not adversary.
+## Competition
+It is you versus you (your competitor supports you in your growth). Your competitor is your ally not adversary.
 
-## future of golf
+## Future of golf
 * extraordinary people live lives backwards. They create a future and live into it. Similator to 7 habits: begin with the end of your mind
 * possibility of new future - every thing is open whereas expectations are fixed, either/or and lead to failed expectations.
 
-## source of consistency
-the deepest part of you doesn't change. you have to experience it and play from it. golf is expression of what you are.
+## Source of consistency
+The deepest part of you doesn't change. You have to experience it and play from it. Golf is expression of what you are.
 
 # Exercises
 
-## putting
-try to be aware of the space behind the hole. your brain doesn't like to putt into unknown areas. that's why many putts are short-term
+## Putting
+Try to be aware of the space behind the hole. Your brain doesn't like to putt into unknown areas. That's why many putts are short-term.
 
-## playing
-do not make an excuses when you hit a bad shot. excuses (alias stories) lives in your head and reduces awareness.
+## Playing
+Do not make an excuses when you hit a bad shot. Excuses (alias stories) lives in your head and reduces awareness.
 
-## purpose
+## Purpose
 * write down why you really play golf
 * what makes you really happy
 
-# driving range
+# Driving range
 * hit a bucket of balls without judging it
 * just observing, not try-to-fix, let the chatter be, no evaluations. let it go as clouds on the sky, just be aware but do not judge them
 
 ## Concentration
-pick of of:
+Pick of of:
 * the ball
 * the club
 * the body
