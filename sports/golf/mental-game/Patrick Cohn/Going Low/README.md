@@ -166,8 +166,6 @@ working the process is the best method to achieve good outcomes
 e.g. thinking about making a putt for par is outcome focus - not desired
 think about a process instead - tasks that lead to making the putt
 be immersed in smaller tasks
-<<<<<<< HEAD
-=======
 
 # Personal scoring zones
 
@@ -239,5 +237,4 @@ free your mind of any expectations of target score, only exception is (# of GIRs
 
 ## Middle holes
 * don't add up your score for front nine
-* if you play good you know 
->>>>>>> origin/master
+* if you play good you know
