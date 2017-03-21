@@ -6,4 +6,4 @@ The only goal to set is number of greens and number of up/downs in the round.
 | Category | 71   | 75   | 79   | 81
 | --- | --- | ---|---|
 |   GIRs |12   |10   |8   | 7  |
-|  FIRs %|81   |71   | 61  |56   |
+|  FIRs |11   |10   | 8.5  |7.8   |
