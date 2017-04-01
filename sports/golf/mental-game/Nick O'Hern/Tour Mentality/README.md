@@ -36,3 +36,18 @@ you hit the shot, and undo the glove is hint to switch off. also try meditation 
 # Swing thoughts
 For the average golfer and pro alike, having only one thought is essential for playing well.
 Focus on you pre-shot routine only. The tempo is the number-one contributor to good putting on the golf course.
+
+# Before a tournament
+* wake up fresh
+* no alcohol the night before
+* drive slower to the couse as usual
+
+# Game day
+## Range 20 minutes
+* range is for finding a good rhythm
+* hit balls for 20 minutes (wedge, 7i, 3i and driver)
+* hit 6i with full pre-shot routine on specific target
+* final swing on the range is tee-shot on the first hole
+## Short game area 10 minutes
+* some chips
+* bunker shots 
