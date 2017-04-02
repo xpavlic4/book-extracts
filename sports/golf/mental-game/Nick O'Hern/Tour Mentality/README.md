@@ -74,3 +74,18 @@ Little voice is the inner voice when you do something hard and it suggests you c
 If you beat the little voice in practice, it gives you the strenght to beat it in the competition. At every stage of your progress, you will be tested and it is how you respond that defines you as a person. your biggest opponent will be yourself and the little voice. embrace the challenge and see it as a moment to step up and work harder. at the end of the day if you can stand in front of the mirror and honestly say you gave it everything you had, you will have no regrets. more than likely you wll have succeeded too.
 
 # How to practice
+The game has two areas:
+* full Swing
+* wedges and in (putting, sand, chips, pitches)
+
+You should spend 2:1 time in favour of wedges and in. Have a plan what to practice.
+
+## advanced player (single digit hcp)
+for an hour, divide it into thirds:
+* 20 mins fundamentals
+* 20 mins on skills
+* 20 mins on competitive scenarios
+
+During the fundamentals I am not too concerned about where the ball is going. Focus on the technical aspect of my swing.
+Than try to hit various trajectories.
+Three in a row drill - three shots in a row between two targets, e.g. 6i tp 170 yards that are 7 yards wide
