@@ -50,4 +50,27 @@ Focus on you pre-shot routine only. The tempo is the number-one contributor to g
 * final swing on the range is tee-shot on the first hole
 ## Short game area 10 minutes
 * some chips
-* bunker shots 
+* bunker shots
+
+# Grinders
+Remain in the present, go through you process as each shot presents itself, and not worry about the sate of your game.
+
+# Awareness of negatives
+Start a round of golf and put a handful (20 or more) tees in you left pocket. Every time you have a negative thought, tak e a tee out and put it in your right pocket. See how many holes you go before your left pocket is empty.
+
+Use negatives as cue to give your mind focus and get back into the present mode.
+
+# Match play
+if you fall behind to your oponent early, it is important not to try and push things. be patient and play your game.
+Look at the oponent, if his head is down and feet is draging, you have to grind out every hole.
+Once you are ahead, putt your foot down and keep trying to increase your lead rather than defend it.
+You can also consede a putt when the distance is more than 3-feet so that your opponent get the feeling you are generous today. And when the situation comes you let him play the putt. The shock should give him stab in the back.
+
+# Strategy
+Hit fairways, hit greens, have a good short game and play to your strenght.
+
+# The little voice
+Little voice is the inner voice when you do something hard and it suggests you compromises. E.g. getting early and little voice is telling you to sleep longer. gives exceuses and justify it.
+If you beat the little voice in practice, it gives you the strenght to beat it in the competition. At every stage of your progress, you will be tested and it is how you respond that defines you as a person. your biggest opponent will be yourself and the little voice. embrace the challenge and see it as a moment to step up and work harder. at the end of the day if you can stand in front of the mirror and honestly say you gave it everything you had, you will have no regrets. more than likely you wll have succeeded too.
+
+# How to practice
