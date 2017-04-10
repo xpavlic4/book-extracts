@@ -1,6 +1,10 @@
+# 134 golf channel guy
+
+85% of golfers do not take any lessons. As you think you become.
+
+# 133 Fried Egg
+Eliminate one side of the golf course.
 # 132 golfish
-
-
 
 # 131 soft tissue mobility
 
