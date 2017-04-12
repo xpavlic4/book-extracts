@@ -3,3 +3,6 @@ The best way to make sure you really know the material is to test yourselft all 
 
 # The value of your past
 Skills from one profession could be useful in another, completely unrelated profession.
+
+# Focus and diffuse modes
+Focus mode is when you are concentrating. Diffuse is when you are not thinking about anything in particular.
