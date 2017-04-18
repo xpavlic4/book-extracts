@@ -27,17 +27,37 @@ Stay task-focused. Interrupt negative self-talk and images the moment they arise
 
 It's self-belief that gets everything going.
 
+
 # How to disable counscious mind acting
+
+It is only when we are in a deep state of relaxation that the conscious mind quits acting as a filter for the inner mind.
+
 
 ## Controling anger
 
 It always starts with a choice to not let it control you. Use focused breating to help manage the intensity. Internal self-talk like: Stay cool, calm down.
 
-If anger arises, make the decision to not let it controll you. Use techniques to redirect energy. Use the energy to resolve stronger.
+If anger arises, make the decision to not let it controll you. Use techniques to redirect energy. Use the energy to resolve.
 
+## Active when controlling
 
-It is only when we are in a deep state of relaxation that the conscious mind quits acting as a filter for the inner mind.
+You must choose to control anger through a decision. For if you lose control to anger - then the anger will surely control you.
 
+## On Loosing
+
+Champions focus on what they can control. They know that while they can't always control what takes place during an event, they can always control how they respond to an event. Within every setback lies the hidden opportunity for a great comeback.
+
+## Fear of Failure
+
+Being afraid to fail actually helps create the conditions that make failure more likely. Fear of failure is caused by not knowing how to fail constructively. The only way to accomplish anything great is to risk failing at it first. If you have a fear of failing, it is more than just a bad thing. It can actually crippple your changes of success.
+
+## Controlling Fear
+
+Fear can turn a competitor from someone trying to win, into someone trying not to lose. Against fear, one can always win. Confront the fear and then engage a strategy to move forward despite the fear.
+
+## On Performance Choking
+
+Momentarily pick a focus point in your immediate environment and fix your eyes on it as you continue your focus breathing. This will help shift the focus away from yourself and to refocus on the particular task at hand.
 
 # On Goals
 When an athlete complains of lacking motivation, you can be sure that it's almost always caused by goals that fail to inspire him to action. Goals serve to keep you on target.
