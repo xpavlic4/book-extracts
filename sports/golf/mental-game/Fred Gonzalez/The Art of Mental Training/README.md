@@ -23,6 +23,22 @@ One must consistently practice mental skills and pre-game routines in order to t
 Don't rush when the pressure is on - smooth is fast. Breath, pause, and learn to gather yourself. But never, ever, allow yourself to rush your game.
 Stay task-focused. Interrupt negative self-talk and images the moment they arise, shut them down on the spot. Replace them with positive self-talk and positive images. Concentrate on showing your brain exactly what it is that you want to achieve, never dwell on what you do not want to happen.
 
+## The Importance of self-believe
+
+It's self-belief that gets everything going.
+
+# How to disable counscious mind acting
+
+## Controling anger
+
+It always starts with a choice to not let it control you. Use focused breating to help manage the intensity. Internal self-talk like: Stay cool, calm down.
+
+If anger arises, make the decision to not let it controll you. Use techniques to redirect energy. Use the energy to resolve stronger.
+
+
+It is only when we are in a deep state of relaxation that the conscious mind quits acting as a filter for the inner mind.
+
+
 # On Goals
 When an athlete complains of lacking motivation, you can be sure that it's almost always caused by goals that fail to inspire him to action. Goals serve to keep you on target.
 
