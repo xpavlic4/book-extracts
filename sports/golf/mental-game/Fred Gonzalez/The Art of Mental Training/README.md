@@ -1,0 +1,8 @@
+# On Goals
+When an athlete complains of lacking motivation, you can be sure that it's almost always caused by goals that fail to inspire him to action. Goals serve to keep you on target.
+
+While setting your own, priavte goals, be sure that they are both challenging and realistic. Slightly out-of -reach goals are best: inspiring hard work, yet still attainable with dedicated effort. Goals need to be set neither too hight nor too easy and low - which would defeat their very purpose. Goals should be written down and reviewed frequently. Goals shoud come in the forms of daily goals, monthly goals and annual goals, and remember that what you are striving for is progress rather than perfection. Beleive me, as you begin to focus on meaningful, specific goals, the power of your hidden reserves will be unleashed and good things will begin to happen.
+
+Ask yourself what you want to accomplish over the next two or three years. Make these your long-term goals. Give them a completion date. Than think of at least three things that you want to achieve within the next year. Make these your short-term goals. Then decide what it is that you can do every month to help you accomplish your short-term goals. Write these down. These are you monthly goals. Give them a completion date too. Set daily goals, that help you achieve monthly goals, that help you achieve your short-term goals, which in turn help you achieve your long-term goals.
+
+Take action. Everything you need is inside of you, inside your very dreams. Goal represents your dreams along a timeline, showing you the steps needed to achieve your success.
