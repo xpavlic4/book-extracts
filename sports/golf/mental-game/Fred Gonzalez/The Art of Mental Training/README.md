@@ -57,7 +57,7 @@ Fear can turn a competitor from someone trying to win, into someone trying not t
 
 ## On Performance Choking
 
-Momentarily pick a focus point in your immediate environment and fix your eyes on it as you continue your focus breathing. This will help shift the focus away from yourself and to refocus on the particular task at hand.
+Momentarily pick a focus point in your immediate environment and fix your eyes on it as you continue your focus breathing. This will help shift the focus away from yourself and to refocus on the particular task at hand. Performance choking is caused by an ego that is afraid of looking bad. You must learn to leave your ego outside of your event.
 
 # On Goals
 When an athlete complains of lacking motivation, you can be sure that it's almost always caused by goals that fail to inspire him to action. Goals serve to keep you on target.
