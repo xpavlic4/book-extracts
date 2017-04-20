@@ -1,6 +1,9 @@
+# 136 short game with stan utley
+
+If you use your arms to accelerate the club in chipping, it is impossible to chip well.
+The best putters have short follow-through.
+
 # 135 Big Screen interview
-
-
 # 134 golf channel guy
 
 85% of golfers do not take any lessons. As you think you become.
