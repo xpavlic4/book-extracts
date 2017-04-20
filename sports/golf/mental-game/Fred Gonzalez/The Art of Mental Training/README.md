@@ -61,7 +61,7 @@ Momentarily pick a focus point in your immediate environment and fix your eyes o
 
 ## Cool under pressure
 
-Many champions have personal affirmations. (I am good, I am fast, I am the best). What they
+Many champions have personal affirmations. (I am good, I am fast, I am the best). What they may be doesn't matter as long as they hlep you take the pressure off yourself. Create three quick affirmations (possitive statements) you can fire off to yourself to complement the breating and relaxation techniques mentioned above. Another method to deal with the pressure is simply thinking about something that relaxes them (e.g. listening to the music).
 
 # On Goals
 When an athlete complains of lacking motivation, you can be sure that it's almost always caused by goals that fail to inspire him to action. Goals serve to keep you on target.
