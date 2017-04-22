@@ -61,7 +61,20 @@ Momentarily pick a focus point in your immediate environment and fix your eyes o
 
 ## Cool under pressure
 
-Many champions have personal affirmations. (I am good, I am fast, I am the best). What they may be doesn't matter as long as they hlep you take the pressure off yourself. Create three quick affirmations (possitive statements) you can fire off to yourself to complement the breating and relaxation techniques mentioned above. Another method to deal with the pressure is simply thinking about something that relaxes them (e.g. listening to the music).
+Many champions have personal affirmations. (I am good, I am fast, I am the best). What they may be doesn't matter as long as they hlep you take the pressure off yourself. Create three quick affirmations (possitive statements) you can fire off to yourself to complement the breating and relaxation techniques mentioned above. Another method to deal with the pressure is simply thinking about something that relaxes them (e.g. listening to the music). Some athletes talk about having experienced their greatest moment in sports through releasing themselves from any fear of failure. Noticing the things taht helped you deal with pressure in the past can make it possible for you to access those techniques again.
+
+## The power of positive talk
+
+When things are tough, it is most important to listen only for the positive self-talk of a champion who is focused on working his way through adversity. Shut down the Internal Critic.
+
+## Too intense
+
+A good mental athlete learns early on at what level of intensity he plays his best game. On a scale of one to ten (ten beeing at the most intense level) most top athletes report that they perform best at around levels seven or eight.
+
+## the dreams
+
+What is your dream? Figure it out. That is your assignment.
+
 
 # On Goals
 When an athlete complains of lacking motivation, you can be sure that it's almost always caused by goals that fail to inspire him to action. Goals serve to keep you on target.
