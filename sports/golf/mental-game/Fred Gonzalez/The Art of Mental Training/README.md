@@ -84,3 +84,27 @@ While setting your own, priavte goals, be sure that they are both challenging an
 Ask yourself what you want to accomplish over the next two or three years. Make these your long-term goals. Give them a completion date. Than think of at least three things that you want to achieve within the next year. Make these your short-term goals. Then decide what it is that you can do every month to help you accomplish your short-term goals. Write these down. These are you monthly goals. Give them a completion date too. Set daily goals, that help you achieve monthly goals, that help you achieve your short-term goals, which in turn help you achieve your long-term goals.
 
 Take action. Everything you need is inside of you, inside your very dreams. Goal represents your dreams along a timeline, showing you the steps needed to achieve your success.
+
+## Do the work
+
+Once you really make the commitment to work hard at becomming a champion, something powerful is set in motion - heart power.
+
+## The work being done
+
+Successful people have the self-discipline to do the things that have to be done, whether they enjoy them or not.
+
+## Changing your mental state
+
+I am strong, I am fast, I dominate. I control the match, I never give in, I never give up, I am powerful, I beat my opponent, I am an unchained lethal gladiator, I conquer. I am an unstoppable champion, a force of fury, my opponent submits. Use all critical elemnts and bring them together in order to change your state completely - The Self-talk of a Champion preparing to do battle, the Body Movements of a Champion preparing to do battle, and the Breathing of aChapion preparing to do battle. Than, allow yourself to become that Champion as you enter your competition.
+
+## The present
+
+The two skills the Warrior/Champion must process to help him reach his maximum potential are the ability to recognize when his mind is not focused on the present, and the ability to bring it back into the present. When your mind is racing, help bring it back by focusing on your breating. This will help you to reach that place where we have a sure sense that we can do what we know we need to do, and that we can do it without having to try too hard, a place from where technique flows freely and accurately, a place from which right action springs forth. TLDR quiet the mind. Be totally in the Present
+
+## Prepare to win
+
+You must trust yourself. There must be no lack of commitment in your mind. Eliminate doubt. There is no room for it. Have confidence and trust yourself as you prepare to win. Always take your trainng sessions seriously. Always concentrate.
+
+## Walk on
+
+The past is gone my friend. You can look back on it but it is only a reflection. The future lies ahead... but it is a future that has not yet been realized. So in reality, today is all we have. And today is here. Why don't you just start walking on your new path, one step at a time? Conjure up some new dreams, cast them out to the Universe, keep your head up, have faith, and discover what lies ahead. Life itselft has put you on this path. Just trust what is and be with it.
