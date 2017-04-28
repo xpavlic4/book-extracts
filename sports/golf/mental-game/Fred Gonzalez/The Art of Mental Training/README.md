@@ -4,7 +4,7 @@ Whatever is going on inside your head has everything to do with how well you end
 
 No matter what your game is, or what the challenge is, the difference between great performances and average performances is mostly mental.
 
-## On Attitude
+## On the Importance of Positive Attitude
 
 Good attitue, a positive attitude creates optimism, positive energy. Working on keeping a positive attitude is what will help you work through bad patch. A positive attitude helps create the opportunity for a great comeback or for a greate performance. A positive attitude never works against you. But a negative attitude will always find a way to work against you.
 
@@ -18,7 +18,7 @@ The Champion understands that a bad attitude can cost him everything. It affects
 
 One must consistently practice mental skills and pre-game routines in order to tap one's full potential.
 
-# Learning to fly
+# How to react when the pressure is on
 
 Don't rush when the pressure is on - smooth is fast. Breath, pause, and learn to gather yourself. But never, ever, allow yourself to rush your game.
 Stay task-focused. Interrupt negative self-talk and images the moment they arise, shut them down on the spot. Replace them with positive self-talk and positive images. Concentrate on showing your brain exactly what it is that you want to achieve, never dwell on what you do not want to happen.
@@ -27,11 +27,9 @@ Stay task-focused. Interrupt negative self-talk and images the moment they arise
 
 It's self-belief that gets everything going.
 
-
 # How to disable counscious mind acting
 
 It is only when we are in a deep state of relaxation that the conscious mind quits acting as a filter for the inner mind.
-
 
 ## Controling anger
 
@@ -43,7 +41,7 @@ If anger arises, make the decision to not let it controll you. Use techniques to
 
 You must choose to control anger through a decision. For if you lose control to anger - then the anger will surely control you.
 
-## On Loosing
+## On Loosing and Response on it
 
 Champions focus on what they can control. They know that while they can't always control what takes place during an event, they can always control how they respond to an event. Within every setback lies the hidden opportunity for a great comeback.
 
