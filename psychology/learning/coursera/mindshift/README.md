@@ -13,6 +13,12 @@ Skills from one profession could be useful in another, completely unrelated prof
 ## Focus and diffuse modes
 Focus mode is when you are concentrating. Diffuse is when you are not thinking about anything in particular.
 
+## Meditation types
+Focus type of meditation help to stay focus and calm our mind. Open monitoring type of meditaion improves our creativity.
+
+## Usage of multiple sences
+Use your ears, hands, eyes, common sense. Environemnt of positive peole.
+
 ## Pi vs T shaped carier
 There is not much difference betwwen someone who worked on the job for 6 months and 6 years. Skill developmnet curves are typically logarithmic, not linear.
 
