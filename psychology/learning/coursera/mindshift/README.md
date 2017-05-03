@@ -24,3 +24,14 @@ There is not much difference betwwen someone who worked on the job for 6 months 
 
 ## The importance of the environment in shifting
 Who you are depends on your environment, changing your environment can boost your Mindshift. You are the average of 5 people you spend the most time with.
+
+# Week 3
+Do not just follow your passion. Work to broaden your passion.
+
+You can develop a career by learning second skill or have many mediocre skills.
+
+Read, take MOOCs and courses to stay up-to-date and not become obsolate in your area.
+
+When facing people who oppose your mindshift, good strategies are dabble, lead a double life and be contrarian.
+
+the golder rule of career catastrophes is it is never as bad as you think it is and there is always a silver lining.
