@@ -1,3 +1,20 @@
+# 139 Fitness should not be complicated
+
+what is the purpose of this podcast?
+* to get in better shape
+
+biggest mistakes
+* people are too serious about golf. PGA tour are not gonna invite you anytime soon
+* lack of consistency, just do it regulary
+
+Solutions
+* moving on a daily basis
+* training with weghts and you have to challenge yourseft
+* sprint (move faster)
+* speed (superspeed golf sticks)
+* nutrician
+
+
 # 138 super speed golf
 
 # 136 short game with stan utley
