@@ -1,4 +1,52 @@
-# 139 Fitness should not be complicated
+# 18Strong pocast
+## 140 nutrician
+
+* Step 1: types of food
+
+Proteins – chicken, fish, beef, turkey, eggs, whey
+
+Fats – nuts, seeds, olive oil, coconut oil, avocado
+
+Carbs – fruits, vegetables, oatmeal, rice, sweet potatoes
+
+Once a client complies with this list for 90%+ of their feedings I move on to step 2.
+
+* Step 2: how much food
+
+There are a number of formulas for determining caloric intake factoring in age, gender, activity level, and so on. The vast majority of people overestimate calorie needs.
+
+An easy starting point for calories per day:
+
+Fat Loss – Body Weight X 10-12
+
+Maintenance – Body Weight X 13-15
+
+Muscle Gain – Body Weight X 16+
+
+So a 200-pound man looking to maintain his body weight would eat 2600-3000 calories per day.
+Eg. 97 kg (213 pounds), 213 * 12 = 2556
+
+* Step 3: macronutrient ratios
+
+A baseline that will work in most cases is 1/3 of calories from fat, 1/3 from protein, 1/3 carbs.
+
+Adjust from there depending on the following:
+
+Is your goal to gain muscle?
+
+Is your goal to lose fat?
+
+What is your body fat percentage?
+
+How much muscle mass do you have?
+
+In hours, how much high intensity training are you doing per week?
+
+A lean & muscular athlete who trains 10 hours per week and is looking to add muscle mass will use a higher ratio of carbs. For example, 65% carbs, 25% protein, 10% fat.
+
+A fatter weekend warrior working a desk job and training hard 3 hours per week will take in a lower ratio of carbs: 20% carbs, 40% protein, 40% fat.
+
+## 139 Fitness should not be complicated
 
 what is the purpose of this podcast?
 * to get in better shape
@@ -15,37 +63,37 @@ Solutions
 * nutrician
 
 
-# 138 super speed golf
+## 138 super speed golf
 
-# 136 short game with stan utley
+## 136 short game with stan utley
 
 If you use your arms to accelerate the club in chipping, it is impossible to chip well.
 The best putters have short follow-through.
 
-# 135 Big Screen interview
-# 134 golf channel guy
+## 135 Big Screen interview
+## 134 golf channel guy
 
 85% of golfers do not take any lessons. As you think you become.
 
-# 133 Fried Egg
+## 133 Fried Egg
 Eliminate one side of the golf course.
-# 132 golfish
+## 132 golfish
 
-# 131 soft tissue mobility
+## 131 soft tissue mobility
 
 foam rolling before anything at home
 
-# 130 Simple Fundamentals for par4success
+## 130 Simple Fundamentals for par4success
 
 Everything happens for a reason.
 
-# 129 Webb Simpson
+## 129 Webb Simpson
 
 * If you are going to be at gym, be at the gym. If you gonna be at home, be at home.
 * Have realistic goals. If you haven't won any tournament, your goal is be in contention
 * being present in what you do
 
-# 128 Powe of Focus Henry Boulton
+## 128 Powe of Focus Henry Boulton
 
 at the end of Analysis phase ask yourself a question - what would a good shot look like?
 
@@ -60,10 +108,10 @@ Breatheing exercise: As you breathe in, your stomach goes out, as you breate out
 http://www.ifocusband.com/
 
 
-# 127 Golf life Perfomance with Jordan Jeske
+## 127 Golf life Perfomance with Jordan Jeske
 
 
-# 126 Archieve anything with a lot of hustle with Anthony Trucks
+## 126 Archieve anything with a lot of hustle with Anthony Trucks
 
 Is this the right work? People are scared. Chase what scares you.
 
@@ -77,11 +125,11 @@ Find the reason why you are on the train. It came accidently. Eg. I want to loos
 
 Time that ordinary people waste extraordinary leverage. If you say yes to something new you said no to something you have already said yes to. Try to block off time on calendar where you have white spots - nothing to do. And fill those with your goals.
 
-# 125 interview with Scott Stallings
+## 125 interview with Scott Stallings
 
 It is difficult to prove that working out won't help your game.
 
-# 124 Perform under pressure
+## 124 Perform under pressure
 
 Mental management practice means every shot is perfect. When you practice, not every shot you would like to cement into your unconsciousness.
 
@@ -96,13 +144,13 @@ Habits - keeping up is better than catching up.
 Victim mentality vs. Hero mentality - Sacrify your life, overweight vs be in shape and lead by examples (to your kids)
 
 
-# 117 Opposite side
+## 117 Opposite side
 
 driver golf performence website
 
 practice 10x a week hitting left-handed
 
-# 118 wrestler
+## 118 wrestler
 
 Do the thing you fear the most.
 
@@ -112,17 +160,17 @@ When you lose or win no matter what you enjoy/cope with the feeling for 10 days,
 
 get up super eary 4:30, 2x-3x HIIT, drink water, drink, 30-40 minutes
 
-# 110 Win or loses
+## 110 Win or loses
 
 Suzan Luci lost 19 consecutive times. Do not define success in big way, just steps how to get there. Failures are building block how to play.
 
-# 120 Episode RyanMoore's coach
+## 120 Episode RyanMoore's coach
 
 fitness is important
 
 play your game no matter what others play (may outdrive you)
 
-# 122 Episode Mindset Manifesto
+## 122 Episode Mindset Manifesto
 
 Reframe doubt - When I hear doubt but it is meaningless.
 
