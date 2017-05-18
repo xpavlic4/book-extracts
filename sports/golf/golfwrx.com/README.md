@@ -1,5 +1,5 @@
 # Breaking 80
-your score = 95- (2 * GIR)
+score = 95- (2 * GIR)
 
 Blueprint:
 * Tee Game/Driving - 8 fairways and 1 error (OOB, Penalty or back-to-fairway shots)
