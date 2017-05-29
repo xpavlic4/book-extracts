@@ -1,4 +1,8 @@
 # 18Strong pocast
+## 141 yoga specialist
+
+commit to excelence - do not take a club if you are not commited to be exelent with it.
+
 ## 140 nutrician
 
 * Step 1: types of food
