@@ -35,3 +35,32 @@ Read, take MOOCs and courses to stay up-to-date and not become obsolate in your 
 When facing people who oppose your mindshift, good strategies are dabble, lead a double life and be contrarian.
 
 the golder rule of career catastrophes is it is never as bad as you think it is and there is always a silver lining.
+
+
+# Week 4
+
+Physical exercise is the best producer of new neurons. Useful way to allow new neurons survive and make new connection is doing something truly new and step out of the comfort-zone.
+
+From evolutionary perspective things that are closer to you are more likely to be dangerous.
+
+## Mentors
+
+Who has the most imfluence on my life? Who has changed your life the most? Follow that person. Sometimes you need someone else to unlock the secret potential.
+
+If you have 20 minutes a day for reading a book, you have read 35 books in a year and you are the smartest person in the room.
+
+# Final exam
+
+Being a Warrior has its advantages. anxiety can allow you to anticipate possibilities.
+
+Selective ignorance can boost your career.
+
+Being mediocre in a lot of things is ok.
+
+There is not much difference between someone who worked 6 years and 6 months in the job. Skill development is logarithmic.
+
+Having a poor memory means you are more likely creative.
+
+Imposters are those who think the others around them are better, more gifted or possesing more abilities. It happens very often when you are studying something new.
+
+Methapfors can help you grasp new concepts.
