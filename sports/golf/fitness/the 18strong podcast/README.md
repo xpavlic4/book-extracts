@@ -1,4 +1,10 @@
 # 18Strong pocast
+## 143 how to handle golf swing
+
+move as much as possible, walk kids to the school
+
+## 142 Training
+
 ## 141 yoga specialist
 
 commit to excelence - do not take a club if you are not commited to be exelent with it.
