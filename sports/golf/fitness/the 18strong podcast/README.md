@@ -1,4 +1,11 @@
 # 18Strong pocast
+## 144 adam stevenson
+
+Use breathing technique after bad/exelent holes.
+Use gamification when practice. Different length shots, compete against each other (or yourself).
+sleep tip: if you see your hand from 1 feet you do not have your room dark enough
+
+
 ## 143 how to handle golf swing
 
 move as much as possible, walk kids to the school
