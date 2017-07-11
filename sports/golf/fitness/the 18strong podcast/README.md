@@ -1,4 +1,7 @@
 # 18Strong pocast
+### 147 Andrew rice
+use one club for every chiping
+
 ## 145 adam young
 Chipping stations. They are difficult as you go further. Station one is a chip over a bag. Station two is chip over a bag and land on the green. You have two attempts. You fail both you go to the lower level. You make both you go up. You make just one you stay at the current level.
 
