@@ -1,5 +1,9 @@
 # 18Strong pocast
-### 147 Andrew rice
+
+## 149 fueling for performance
+Eat as much as possible the night before a tournament, and eat again 2 hours before a tournament. On the golf course eat buter, than nuts on 6/7 and 12/13 hole.
+
+## 147 Andrew rice
 use one club for every chiping
 
 ## 145 adam young
