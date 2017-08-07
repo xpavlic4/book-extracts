@@ -1,6 +1,7 @@
 # 18Strong pocast
 ## 151 how to fast track your improvement
-
+you need one consistent person who teach you one concept.
+groove one shot
 
 ## 150 how to build BogeyProof Shoulders
 
