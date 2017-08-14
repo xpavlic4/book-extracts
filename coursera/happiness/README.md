@@ -5,3 +5,12 @@
 
 ### Why we devaluate Happiness
 People prefer things that are simple and easy rather than complicated.
+
+Prioritize but do not pursue Happiness - reminding yourself on regular basis on making Happiness-enhancing decisions
+
+Happiness definition:
+* sensory Pleasure (eat food)
+* hubristic pride
+* authentic pride
+* love/connections
+* abundance
