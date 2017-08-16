@@ -59,7 +59,7 @@ Momentarily pick a focus point in your immediate environment and fix your eyes o
 
 ## Cool under pressure
 
-Many champions have personal affirmations. (I am good, I am fast, I am the best). What they may be doesn't matter as long as they hlep you take the pressure off yourself. Create three quick affirmations (possitive statements) you can fire off to yourself to complement the breating and relaxation techniques mentioned above. Another method to deal with the pressure is simply thinking about something that relaxes them (e.g. listening to the music). Some athletes talk about having experienced their greatest moment in sports through releasing themselves from any fear of failure. Noticing the things taht helped you deal with pressure in the past can make it possible for you to access those techniques again.
+Many champions have personal affirmations. (I am good, I am fast, I am the best). What they may be doesn't matter as long as they hlep you take the pressure off yourself. Create three quick affirmations (possitive statements) you can fire off to yourself to complement the breating and relaxation techniques mentioned above. Another method to deal with the pressure is simply thinking about something that relaxes them (e.g. listening to the music). Some athletes talk about having experienced their greatest moment in sports through releasing themselves from any fear of failure. Noticing the things that helped you deal with pressure in the past can make it possible for you to access those techniques again.
 
 ## The power of positive talk
 
@@ -73,11 +73,10 @@ A good mental athlete learns early on at what level of intensity he plays his be
 
 What is your dream? Figure it out. That is your assignment.
 
-
 # On Goals
 When an athlete complains of lacking motivation, you can be sure that it's almost always caused by goals that fail to inspire him to action. Goals serve to keep you on target.
 
-While setting your own, priavte goals, be sure that they are both challenging and realistic. Slightly out-of -reach goals are best: inspiring hard work, yet still attainable with dedicated effort. Goals need to be set neither too hight nor too easy and low - which would defeat their very purpose. Goals should be written down and reviewed frequently. Goals shoud come in the forms of daily goals, monthly goals and annual goals, and remember that what you are striving for is progress rather than perfection. Beleive me, as you begin to focus on meaningful, specific goals, the power of your hidden reserves will be unleashed and good things will begin to happen.
+While setting your own, private goals, be sure that they are both challenging and realistic. Slightly out-of-reach goals are best: inspiring hard work, yet still attainable with dedicated effort. Goals need to be set neither too hight nor too easy and low - which would defeat their very purpose. Goals should be written down and reviewed frequently. Goals shoud come in the forms of daily goals, monthly goals and annual goals, and remember that what you are striving for is progress rather than perfection. Belive me, as you begin to focus on meaningful, specific goals, the power of your hidden reserves will be unleashed and good things will begin to happen.
 
 Ask yourself what you want to accomplish over the next two or three years. Make these your long-term goals. Give them a completion date. Than think of at least three things that you want to achieve within the next year. Make these your short-term goals. Then decide what it is that you can do every month to help you accomplish your short-term goals. Write these down. These are you monthly goals. Give them a completion date too. Set daily goals, that help you achieve monthly goals, that help you achieve your short-term goals, which in turn help you achieve your long-term goals.
 
@@ -93,7 +92,7 @@ Successful people have the self-discipline to do the things that have to be done
 
 ## Changing your mental state
 
-I am strong, I am fast, I dominate. I control the match, I never give in, I never give up, I am powerful, I beat my opponent, I am an unchained lethal gladiator, I conquer. I am an unstoppable champion, a force of fury, my opponent submits. Use all critical elemnts and bring them together in order to change your state completely - The Self-talk of a Champion preparing to do battle, the Body Movements of a Champion preparing to do battle, and the Breathing of aChapion preparing to do battle. Than, allow yourself to become that Champion as you enter your competition.
+I am strong, I am fast, I dominate. I control the match, I never give in, I never give up, I am powerful, I beat my opponent, I am an unchained lethal gladiator, I conquer. I am an unstoppable champion, a force of fury, my opponent submits. Use all critical elements and bring them together in order to change your state completely - The Self-talk of a Champion preparing to do battle, the Body Movements of a Champion preparing to do battle, and the Breathing of a Chapion preparing to do battle. Than, allow yourself to become that Champion as you enter your competition.
 
 ## The present
 
