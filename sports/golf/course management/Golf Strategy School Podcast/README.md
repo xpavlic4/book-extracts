@@ -6,3 +6,6 @@ If you have many swing thoughts during your swing, you are not concentrating on 
 
 ## Stay on your plan
 Do not follow a bad shot with a dumb one. Bogeys won't kill you, but doubles will.
+
+## Prepare for every outcome
+Try to hit every possible/goofy position around the green, so if the situation arise you will be prepared.
