@@ -1,4 +1,16 @@
 # 18Strong pocast
+## The 8 traits of champion golf
+
+8 traits all champins have.
+traits:
+* more abstract thinking (listen to your guts, multiple ideas)
+* ask question only what you can change
+* make a plan before you go out
+* play to your favourite distances (100 yard shot)
+* if you are high apprehensive you cannot be a good golfer
+* parent (or caddy) should not tell the player which club they should take, they only advise, the player decides
+
+
 ## 151 how to fast track your improvement
 you need one consistent person who teach you one concept.
 groove one shot
