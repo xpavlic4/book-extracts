@@ -1,6 +1,10 @@
 # 18Strong pocast
+## 157 long-drive champion
+
+
 ## 156
 you just have to spend money on fittness - the question is when. Either as you are young or on a wheelchair when you are old
+
 ## 155
 
 ## The 8 traits of champion golf
@@ -16,6 +20,7 @@ traits:
 
 
 ## 151 how to fast track your improvement
+
 you need one consistent person who teach you one concept.
 groove one shot
 
