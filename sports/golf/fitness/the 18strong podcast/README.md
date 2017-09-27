@@ -1,4 +1,8 @@
 # 18Strong pocast
+## 158 eating
+ eating mindfully
+ kombucha - tea with suger
+
 ## 157 long-drive champion
 
 
