@@ -1,5 +1,22 @@
 # 18Strong pocast
+## 159 will robins
+
+I play my best golf when ...?
+your worst golf when:
+* high expectations
+* stressed
+* overthing
+
+95% golfers have tension problem, not technique problem (it works on driving range)
+
+number one rule in golf: keep the ball in play
+
+on every hole, go to the forward tee or on every par4 and par5 throw the ball into the 100 meters and you see that you won't improve so much. Distance is not everything, the most important part is chipping and putting.
+
+
+
 ## 158 eating
+
  eating mindfully
  kombucha - tea with suger
 
