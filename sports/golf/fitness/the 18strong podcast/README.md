@@ -13,6 +13,7 @@ number one rule in golf: keep the ball in play
 
 on every hole, go to the forward tee or on every par4 and par5 throw the ball into the 100 meters and you see that you won't improve so much. Distance is not everything, the most important part is chipping and putting.
 
+thescoringmethod.com
 
 
 ## 158 eating
