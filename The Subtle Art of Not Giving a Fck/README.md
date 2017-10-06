@@ -1,4 +1,4 @@
-#The Subtle Art of Not Giving a Fck
+# The Subtle Art of Not Giving a Fck
 
 The true measurement of self-worth is not how a person feels about her positive experiences, but rather how she feels about her negative experiences.
 
@@ -6,7 +6,7 @@ The true measurement of self-worth is not how a person feels about her positive 
 
 If you are exceptional at one thing, chances are you are average or below average at most other things.
 
-A lot of people are afraid to accept mediacrity because they believe that if they accept it, they will never achieve anything, never improve, and that their life won't matter. Once you accept the premise that a life is worthwhile only if it is truly notable and great, then you basically accept the fact that most of the human population sucks and is worthless. People who become great at something become great becouse they are mediocre and they could be so much better.
+A lot of people are afraid to accept mediacrity because they believe that if they accept it, they will never achieve anything, never improve, and that their life won't matter. Once you accept the premise that a life is worthwhile only if it is truly notable and great, then you basically accept the fact that most of the human population sucks and is worthless. People who become great at something become great because they are mediocre and they could be so much better.
 
 ## The Value of Suffering
 
@@ -28,11 +28,12 @@ Manson's law of avoidance: The more something threatens your identity, the more 
 Define yourself in the simplest and most ordinary ways possible. The narrower and rarer the identity you choose for yourself, the more everything will seem to threaten you.
 
 ## Questioning yourself
+
 Q1: What if I am wrong?
 Q2: What would it mean if I were wrong?
 Q3: Would being wrong create a better or a worse problem than my current problem, for both myself and others?
 
-rule: if it's down to me being screwed up, or everybody else being screwed up, it is far, far, far more likely that I'm the one who's screwed up.
+Rule: if it's down to me being screwed up, or everybody else being screwed up, it is far, far, far more likely that I'm the one who's screwed up.
 
 ## Failure is the Way Forward
 
