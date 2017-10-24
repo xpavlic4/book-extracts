@@ -1,4 +1,13 @@
 # 18Strong pocast
+## 162 interval Training
+
+interval - burst of training seperated by pauses
+HIIT - high intensity interval training
+
+HIIT example for fat burning: 8 sec high/ 12 sec low, do it 20 minutes
+
+There is no free lunch. = you have to put effort, nothing is for free
+
 ## 160 spider
 ## 159 will robins
 
