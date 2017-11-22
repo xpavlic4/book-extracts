@@ -26,3 +26,14 @@ Three things you need to do in the Think box.
 * select shot you are going to hit
 * commit to the sensory state you will use in the Play box
 * need to be present to that sensory sate you have chosen
+
+## Good Enough Shots
+Being positive to Good Enough shots is crucial to stay positive.
+
+## positive outcome, neutral to process
+positive to outcome and neutral to process. No negative memories
+
+## exercises on the courses
+* hips lock up - a few steps forward and backward with feet toes together, ankles wide, and than the same with feet like a duck
+* glues not activated - squats
+* shoulder are tensed - roll them over
