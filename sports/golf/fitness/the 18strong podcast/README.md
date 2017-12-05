@@ -1,4 +1,15 @@
 # 18Strong pocast
+## 168: 7 ways to fix your body
+
+* do things that challenge you
+* word on your legs
+* balance out left and right side
+  * start on weaker side every time, cause you are fresher at the beginning
+  * weaker side dictates how much weight you practice with
+* be consistent
+* create more variability
+
+
 ## 165 CEO of Callaway
 
 
