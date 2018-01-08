@@ -1,4 +1,12 @@
 # 18Strong pocast
+## 172: What Are You Committed To?
+
+* create a manifesto, what do you want to be. write it down
+* make things stupidly simple, "Execution hates complexity"
+
+## 171:Damon Goddard | Don’t Underestimate Simple Training
+
+
 ## 168: 7 ways to fix your body
 
 * do things that challenge you
