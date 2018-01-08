@@ -1,4 +1,10 @@
 # 18Strong pocast
+## 173: Tyler from golfsmartacademy
+
+two things most amateur golfer should be paying attention to:
+* clubface awareness
+* controlling ground contact
+
 ## 172: What Are You Committed To?
 
 * create a manifesto, what do you want to be. write it down
