@@ -1,4 +1,14 @@
 # 18Strong pocast
+## 175: golf is the worst practiced sports
+4 pillars
+* you need to know what to do
+* you need some feedback to check
+* transfer practice (missed most of the time)
+
+if practice on the driving range, try to visialize. Hit driver and than don't hit it again. Pick 8i and hit it again and that hit driver again. Alternate as much as possible.
+
+## 174: kirk
+
 ## 173: Tyler from golfsmartacademy
 
 two things most amateur golfer should be paying attention to:
