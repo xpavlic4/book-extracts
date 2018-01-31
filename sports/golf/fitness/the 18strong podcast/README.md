@@ -86,12 +86,12 @@ you just have to spend money on fittness - the question is when. Either as you a
 
 ## The 8 traits of champion golf
 
-8 traits all champins have.
+8 traits all champions have.
 traits:
 * more abstract thinking (listen to your guts, multiple ideas)
 * ask question only what you can change
 * make a plan before you go out
-* play to your favourite distances (100 yard shot)
+* play to your favorite distances (100 yard shot)
 * if you are high apprehensive you cannot be a good golfer
 * parent (or caddy) should not tell the player which club they should take, they only advise, the player decides
 
@@ -108,14 +108,14 @@ groove one shot
 Eat as much as possible the night before a tournament, and eat again 2 hours before a tournament. On the golf course eat buter, than nuts on 6/7 and 12/13 hole.
 
 ## 147 Andrew rice
-use one club for every chiping
+use one club for every chipping
 
-## 145 adam young
+## 145 Adam Young
 Chipping stations. They are difficult as you go further. Station one is a chip over a bag. Station two is chip over a bag and land on the green. You have two attempts. You fail both you go to the lower level. You make both you go up. You make just one you stay at the current level.
 
 ## 144 adam stevenson
 
-Use breathing technique after bad/exelent holes.
+Use breathing technique after bad/excellent holes.
 Use gamification when practice. Different length shots, compete against each other (or yourself).
 sleep tip: if you see your hand from 1 feet you do not have your room dark enough
 
@@ -128,7 +128,7 @@ move as much as possible, walk kids to the school
 
 ## 141 yoga specialist
 
-commit to excelence - do not take a club if you are not commited to be exelent with it.
+commit to excellence - do not take a club if you are not committed to be excellent with it.
 
 ## 140 nutrician
 
