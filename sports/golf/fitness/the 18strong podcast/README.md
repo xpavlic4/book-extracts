@@ -1,4 +1,9 @@
 # 18Strong pocast
+## 177: fitness trainer of Justin Thomas
+* Mobily work twice a day - stretching
+* Training 2-3x/ week
+* after round routines
+
 ## 175: golf is the worst practiced sports
 4 pillars
 * you need to know what to do
@@ -130,7 +135,7 @@ move as much as possible, walk kids to the school
 
 commit to excellence - do not take a club if you are not committed to be excellent with it.
 
-## 140 nutrician
+## 140 nutrition
 
 * Step 1: types of food
 
@@ -184,14 +189,14 @@ what is the purpose of this podcast?
 
 biggest mistakes
 * people are too serious about golf. PGA tour are not gonna invite you anytime soon
-* lack of consistency, just do it regulary
+* lack of consistency, just do it regularly
 
 Solutions
 * moving on a daily basis
-* training with weghts and you have to challenge yourseft
+* training with weights and you have to challenge yourself
 * sprint (move faster)
 * speed (superspeed golf sticks)
-* nutrician
+* nutrition
 
 
 ## 138 super speed golf
@@ -208,6 +213,7 @@ The best putters have short follow-through.
 
 ## 133 Fried Egg
 Eliminate one side of the golf course.
+
 ## 132 golfish
 
 ## 131 soft tissue mobility
@@ -224,7 +230,7 @@ Everything happens for a reason.
 * Have realistic goals. If you haven't won any tournament, your goal is be in contention
 * being present in what you do
 
-## 128 Powe of Focus Henry Boulton
+## 128 Power of Focus Henry Boulton
 
 at the end of Analysis phase ask yourself a question - what would a good shot look like?
 
