@@ -1,6 +1,16 @@
-# 18Strong pocast
+# 18Strong podcast
+
+## 178: short-Game
+
+Pre-shot routine:
+* assessment of the lie, wind, green
+* where you want to putt 
+* see trajectory of the intended shots
+* landing spot
+* and than you walk in
+
 ## 177: fitness trainer of Justin Thomas
-* Mobily work twice a day - stretching
+* Mobility work twice a day - stretching
 * Training 2-3x/ week
 * after round routines
 
@@ -10,14 +20,14 @@
 * you need some feedback to check
 * transfer practice (missed most of the time)
 
-if practice on the driving range, try to visialize. Hit driver and than don't hit it again. Pick 8i and hit it again and that hit driver again. Alternate as much as possible.
+if practice on the driving range, try to visualize. Hit driver and than don't hit it again. Pick 8i and hit it again and that hit driver again. Alternate as much as possible.
 
 ## 174: kirk
 
-## 173: Tyler from golfsmartacademy
+## 173: Tyler from golf-smart-academy
 
 two things most amateur golfer should be paying attention to:
-* clubface awareness
+* club-face awareness
 * controlling ground contact
 
 ## 172: What Are You Committed To?
@@ -51,7 +61,7 @@ two things most amateur golfer should be paying attention to:
 
 ## 162 interval Training
 
-interval - burst of training seperated by pauses
+interval - burst of training separated by pauses
 HIIT - high intensity interval training
 
 HIIT example for fat burning: 8 sec high/ 12 sec low, do it 20 minutes
@@ -65,7 +75,7 @@ I play my best golf when ...?
 your worst golf when:
 * high expectations
 * stressed
-* overthing
+* over-thing
 
 95% golfers have tension problem, not technique problem (it works on driving range)
 
@@ -79,13 +89,13 @@ thescoringmethod.com
 ## 158 eating
 
  eating mindfully
- kombucha - tea with suger
+ kombucha - tea with sugar
 
 ## 157 long-drive champion
 
 
 ## 156
-you just have to spend money on fittness - the question is when. Either as you are young or on a wheelchair when you are old
+you just have to spend money on fitness - the question is when. Either as you are young or on a wheelchair when you are old
 
 ## 155
 
@@ -106,7 +116,7 @@ traits:
 you need one consistent person who teach you one concept.
 groove one shot
 
-## 150 how to build BogeyProof Shoulders
+## 150 how to build Bogey-Proof Shoulders
 
 
 ## 149 fueling for performance
