@@ -4,10 +4,14 @@
 
 Pre-shot routine:
 * assessment of the lie, wind, green
-* where you want to putt 
+* where you want to putt
 * see trajectory of the intended shots
 * landing spot
 * and than you walk in
+
+Post-shot routine:
+* enhance it positively
+* do not react to bad one
 
 ## 177: fitness trainer of Justin Thomas
 * Mobility work twice a day - stretching
