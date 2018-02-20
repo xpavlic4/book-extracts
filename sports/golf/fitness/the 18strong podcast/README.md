@@ -1,6 +1,6 @@
 # 18Strong podcast
 
-## 179: younth coach
+## 179: youth coach
 go to the first tee as if you have already won the tournament
 
 ## 178: short-Game
