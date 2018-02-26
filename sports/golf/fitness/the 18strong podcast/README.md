@@ -1,11 +1,14 @@
 # 18Strong podcast
 
+## 180: yoga coach
+better to stretch 15 minutes every day as catch up 2 yoga classes a week
+
 ## 179: youth coach
 go to the first tee as if you have already won the tournament
 
 ## 178: short-Game
 
-Pre-shot routine:
+Preshot routine:
 * assessment of the lie, wind, green
 * where you want to putt
 * see trajectory of the intended shots
