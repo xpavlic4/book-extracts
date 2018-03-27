@@ -1,11 +1,11 @@
 # 18Strong podcast
-# 184: dr. Kaza: changing beviour
+# 184: dr. Kaza: changing behaviour
 
-* task has to be SMART: Specific, Measurable, actionable, repeatable and timely
+* task has to be SMART: Specific, Measurable, achievable, relevant and time limited
 * default thing should be healthiest option (opt out for unhealthy one)
 * if you brain is exhausted it defaults to doing nothing
 * people make impulsive decision once they make some decisions   
-* leave no room for making a bad decision (eg. eat a dessert only on weekends) 
+* leave no room for making a bad decision (eg. eat sweets only on weekends)
 
 ## 180: yoga coach
 better to stretch 15 minutes every day as catch up 2 yoga classes a week
