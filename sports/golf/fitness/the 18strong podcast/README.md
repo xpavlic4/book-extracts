@@ -1,4 +1,18 @@
 # 18Strong podcast
+# 185: aimpoint golf
+* walk the line and find the steepest slope during on your putt-line
+* this should give you a number
+* now use this amount of thumbs to the right or left to find your aimpoint
+
+now you have to find what is 1 thumb slope, 2 thumbs slope etc.
+All is done by feel. Should be done in 10-15 minutes.
+
+Looking at your putt by your eyes are subject to optical illusions. Sences are always correct.
+
+What have the best putters in common:
+* extreme relaxed
+
+
 # 184: dr. Kaza: changing behaviour
 
 * task has to be SMART: Specific, Measurable, achievable, relevant and time limited
