@@ -223,4 +223,8 @@ free your mind of any expectations of target score, only exception is (# of GIRs
 
 ## Middle holes
 * don't add up your score for front nine
-* if you play good you know
+* if you play good you know that
+* stick to the game plan
+* focus on what you want to do, not what you don't
+* focus on target instead of water hazards
+* break 9-holes into 3 holes groups
