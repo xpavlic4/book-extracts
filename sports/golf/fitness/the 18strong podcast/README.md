@@ -1,4 +1,9 @@
 # 18Strong podcast
+# 186: longhitter
+
+* correlation between ball speed and handicap
+
+
 # 185: aimpoint golf
 * walk the line and find the steepest slope during on your putt-line
 * this should give you a number
@@ -7,7 +12,7 @@
 now you have to find what is 1 thumb slope, 2 thumbs slope etc.
 All is done by feel. Should be done in 10-15 minutes.
 
-Looking at your putt by your eyes are subject to optical illusions. Sences are always correct.
+Looking at your putt by your eyes are subject to optical illusions. Senses are always correct.
 
 What have the best putters in common:
 * extreme relaxed
@@ -29,7 +34,7 @@ go to the first tee as if you have already won the tournament
 
 ## 178: short-Game
 
-Preshot routine:
+Pre-shot routine:
 * assessment of the lie, wind, green
 * where you want to putt
 * see trajectory of the intended shots
