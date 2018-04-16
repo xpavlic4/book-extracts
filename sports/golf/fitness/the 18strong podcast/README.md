@@ -1,4 +1,11 @@
 # 18Strong podcast
+# 187: mental game
+
+* overemphasis on the results (especially young players look scoreboard)
+* golfers they do not have clear goals
+* put yourself under pressure when you practice (have consequences)
+
+
 # 186: longhitter
 
 * correlation between ball speed and handicap
@@ -7,7 +14,7 @@
 # 185: aimpoint golf
 * walk the line and find the steepest slope during on your putt-line
 * this should give you a number
-* now use this amount of thumbs to the right or left to find your aimpoint
+* now use this amount of thumbs to the right or left to find your aim-point
 
 now you have to find what is 1 thumb slope, 2 thumbs slope etc.
 All is done by feel. Should be done in 10-15 minutes.
@@ -24,7 +31,7 @@ What have the best putters in common:
 * default thing should be healthiest option (opt out for unhealthy one)
 * if you brain is exhausted it defaults to doing nothing
 * people make impulsive decision once they make some decisions   
-* leave no room for making a bad decision (eg. eat sweets only on weekends)
+* leave no room for making a bad decision (e.g. eat sweets only on weekends)
 
 ## 180: yoga coach
 better to stretch 15 minutes every day as catch up 2 yoga classes a week
