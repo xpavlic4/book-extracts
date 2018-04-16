@@ -4,6 +4,12 @@
 * overemphasis on the results (especially young players look scoreboard)
 * golfers they do not have clear goals
 * put yourself under pressure when you practice (have consequences)
+* after shot:
+  - celebrate success
+  - not react to wrong shots
+* https://golfstateofmind.com/
+* putting drills that create pressure
+
 
 
 # 186: longhitter
