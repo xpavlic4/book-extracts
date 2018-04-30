@@ -1,4 +1,10 @@
 # 18Strong podcast
+
+# 189: superspeed golf
+
+# 188: get better every day
+Question on Emiliano Grillo: What are you working on? The worst thing and the very best thing I have, because the latter one got my here on tour.
+
 # 187: mental game
 
 * overemphasis on the results (especially young players look scoreboard)
