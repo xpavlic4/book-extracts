@@ -12,11 +12,11 @@ Light year = distance covered by light in one year
   * invariance  of the speed of light to all observers
 
 # Relativity of simultaneity
- * clocks that are synchronized in static frame of reference are not synchronized in moving frame of reference
- * time dilation - someone who observers moving clock will see moving clock move more slowely than theirs
+ * clocks that are synchronised in static frame of reference are not synchronised in moving frame of reference
+ * time dilation - someone who observers moving clock will see moving clock move more slowly than theirs
  * length contraction
  * Lorenz transformation between inertial frames of reference
 
 # Implication
-## Fastern than light
+## Faster than light
 reversal of cause and effect
