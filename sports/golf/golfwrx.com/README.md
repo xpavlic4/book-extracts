@@ -3,7 +3,7 @@
 * 3 stages of bunker play - get out, get onto and get close
 * let go of score - do not keep track of where you stand with par on a moment-to-moment basis
 * Elevation affects distance - take into consideration in the think box
-* playing from sidehill lies
+* playing from side-hill lies
   - above your feet curves to the Left
   - below your feet curves to the right
 * avoid the big number - no hero shots when you are in troubles
