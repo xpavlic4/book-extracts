@@ -1,4 +1,9 @@
 # 18Strong podcast
+# 193: less pain
+train without hitting golf balls
+every time you hit a golf ball it is like someone hit you in American football
+10 minutes a day makes the difference
+
 # 191: untucked golf Skratch TV
 
 # 190: the back mechnic docor
