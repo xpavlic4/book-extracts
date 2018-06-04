@@ -15,3 +15,11 @@
   knowing how the ball will react in different environments, e.g. spin, wind
 * being aware of your mental game
   post-round analysis
+## 7 ways of improving distance control with wedges
+* consistent contact
+* what does this shot feel like
+* use external focus and visualized intention
+* light hands 3 on scale 1-10
+* commitment
+* use clock system
+* use random practice instead of block, one shot 100 yards, next 90, 80 etc.
