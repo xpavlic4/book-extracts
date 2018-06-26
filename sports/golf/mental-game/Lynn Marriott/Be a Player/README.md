@@ -65,4 +65,25 @@ Body language:
 Commitment:
 - play a hole and alternate between hitting a shot with 100-percent commitment and a shot with weak or indecisive commitment
 
-# Influence
+# Variability
+Human skills are what you can truly control on the golf course.
+
+Questions:
+* how do you handle slow play?
+* how do you react to fast play?
+* unlucky bounces or bad lies?
+* how do you feel when you start off your round well or bad
+* how do you perform with different kinds of players
+* how do you perform with different types of courses
+* how do you manage changes in your body, mind and emotions during your round.
+
+On-Course explorations:
+* hit shot you would not normally hit with that club, but stay committed
+* pick something what distracts you and hit the shot
+* play speed golf, run between shots, shortest routine
+* take time between shots and routine, play extra slow
+* play from different tee box
+* tee off with with conservative strategy where you would normally hit the driver
+* play shots and give yourself bad lies every time
+* play with a feeling of being tight, what shots you are struggling with
+* play a hot and do lumber-jacks before every shot (adrenaline in your blood)
