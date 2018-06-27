@@ -87,3 +87,30 @@ On-Course explorations:
 * play shots and give yourself bad lies every time
 * play with a feeling of being tight, what shots you are struggling with
 * play a hot and do lumber-jacks before every shot (adrenaline in your blood)
+
+# Balance, tempo and tension
+## Balance
+If you take off your shoes and swing barefoot, you will more clearly sense whether your weight is on the balls of your feet.
+Also hit balls with feet together, on one foot or with eyes closed.
+## Tempo
+By practicing and hitting the ball with different tempos - from 20 to your normal speed.
+Practicing speed variations will allow you to master hitting very fast form thick rough or soft for a flop shot.
+Sometimes hitting slower tempo corrects sequencing hence you hit further.
+## Tension
+grip pressure, tension in your body
+Questions:
+- hit 5 shots with your feet together and stay balanced
+- hit 3 shots standing on the right foot, 3 shots on the left foot. Can you finish in balance?
+- make full swing slow, medium and fast tempo, how it feels?
+- different grip pressure, how it feels?
+
+on-course explorations, play one hole with following:
+- hit shots with feet together
+- hit shots with 50% tempo
+- one hole focus on shoulders relaxed
+- concentrate where your balance is
+- hit shots wit 75% tempo
+- focus on grip pressure
+- hit shots with your eyes closed
+- make practice swings on one foot only
+- smile all the way
