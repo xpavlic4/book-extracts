@@ -114,3 +114,9 @@ on-course explorations, play one hole with following:
 - hit shots with your eyes closed
 - make practice swings on one foot only
 - smile all the way
+
+# during the round
+
+* Think Box - where decisions are made
+* Play Box - where the shot is executed
+* Memory Box - where positive is stored and negative is transformed into neutral
