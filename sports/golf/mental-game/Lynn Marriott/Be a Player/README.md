@@ -120,3 +120,23 @@ on-course explorations, play one hole with following:
 * Think Box - where decisions are made
 * Play Box - where the shot is executed
 * Memory Box - where positive is stored and negative is transformed into neutral
+
+## Play Box
+something you have to feel during your whole swing. E.g. grip pressure, tempo etc.
+
+Questions:
+* How well can you keep a Play Box sensation until the very end of your swing?
+* How deeply can you focus in your Play Box?
+
+on-course explorations, play one hole with following:
+- see the ball flight or the target it your mind
+- feel constant grip pressure or softness in shoulders
+- listen to the sound of the impact or hum a song
+- choose Play Box awareness and hold it until the ball comes to rest
+- close eyes and experience a Play Box feel before stepping into the shot
+- play with play box sensation of feeling free and athletic during each swing
+- feel 100 % connection to your target
+- feel different Play Box sensation for the back-swing and different for the downswing
+- try to exaggerate your Play Box before each swing
+
+# Influence 
