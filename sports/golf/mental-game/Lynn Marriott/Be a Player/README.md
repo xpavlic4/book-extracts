@@ -139,4 +139,29 @@ on-course explorations, play one hole with following:
 - feel different Play Box sensation for the back-swing and different for the downswing
 - try to exaggerate your Play Box before each swing
 
-# Influence 
+## Think Box
+- choose the shot
+- commit your sensory state that will be used in the Play box
+- present to that sensory state in PB
+
+Do not take too much information in the Think Box.
+
+Questions:
+ - simplify your decision-making in your think box
+ - when you choose a e.g. 7 iron, what will you do to clarify the sense of feel
+ - how do you know your gut agrees
+ - what's the purpose of the practice swing
+ - does it make any change if you say your decision loud?
+ - how is your body language when you make the decision
+ - what is your transition action to "being" mode
+
+ on-course:
+ - play only with instinct and guts
+ - use extra confident body language
+ - close your eyes before stepping into the Play Box
+ - use strongest voice to state your decision
+ - create high adrenaline before hitting the shot
+ - take two deep exhales before hitting your shots
+ - create a happy feeling in your heart
+ - ask yourself a question, "do I trust my decision?" and say YES
+ - see the future before stepping into your shot
