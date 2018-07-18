@@ -1,4 +1,14 @@
 # golfstateofmind.com
+## winners attitude
+* be positive
+* define your purpose, why do you play golf
+* act like you are more confident
+* express gratitude for being able to play
+* growth mindset - learn from your mistakes
+* laugh at bad shots
+* spend more time in present
+* do not compare to someone else
+
 ## THE 7 MOST IMPORTANT MENTAL SKILLS FOR GOLFERS
 * the ability to focus
   take variables into account, full routine, visualization, commitment
