@@ -70,14 +70,14 @@ Process oriented
 
 Confidence
 --
-  * Model other's behaviours
-  * Social persuation
+  * Model other's behaviors
+  * Social persuasion
   * best experiences
 
 Pre-shot routine
 --
   * time it
 
-Optimalizaiton
+Optimization
 --
-Negative statement -> megative thought -> reframe
+Negative statement -> negative thought -> re-frame
