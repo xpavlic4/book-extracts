@@ -88,6 +88,7 @@
 | 100-golfer | 18      |    NA |NA |
 | 110-golfer | 23      |    $1 |NA |
 
+#
 
 ## 19th hole
 * important shots are those that lead to coring difference, more putts in a round doesn't mean putting is more important than driving
