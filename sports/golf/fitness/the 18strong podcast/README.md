@@ -1,4 +1,9 @@
 # 18Strong podcast
+# 200: local club champion
+* you cannot learn the game of golf 2 days prior to the tournament
+* do not try to show up in front of other people, be yourself
+* book fearless golf
+
 # 193: less pain
 train without hitting golf balls
 every time you hit a golf ball it is like someone hit you in American football
