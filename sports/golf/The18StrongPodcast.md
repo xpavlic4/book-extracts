@@ -1,4 +1,5 @@
 # 18Strong podcast
+
 # 200: local club champion
 * you cannot learn the game of golf 2 days prior to the tournament
 * do not try to show up in front of other people, be yourself

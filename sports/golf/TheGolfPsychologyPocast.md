@@ -7,3 +7,8 @@ The only goal to set is number of greens and number of up/downs in the round.
 | --- | --- | ---|---|
 |   GIRs |12   |10   |8   | 7  |
 |  FIRs |11   |10   | 8.5  |7.8   |
+
+# Anxiety under Pressure
+Two possibilities
+* The payoff syndrom - I worked so hard on this
+* I do not want to fail in front of others 
