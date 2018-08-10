@@ -1,4 +1,11 @@
 # golfstateofmind.com
+## visualization
+* 100% commitment to the shot means "subconscious" is doing it.
+* replay your past success and engage as many senses during the visualisation
+* use visualisation in your pre-shot routine
+* visualise your goals in 5 years
+
+
 ## winners attitude
 * be positive
 * define your purpose, why do you play golf
