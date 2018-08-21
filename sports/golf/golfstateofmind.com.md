@@ -1,9 +1,9 @@
 # golfstateofmind.com
 ## visualization
 * 100% commitment to the shot means "subconscious" is doing it.
-* replay your past success and engage as many senses during the visualisation
-* use visualisation in your pre-shot routine
-* visualise your goals in 5 years
+* replay your past success and engage as many senses during the visualization
+* use visualization in your pre-shot routine
+* visualize your goals in 5 years
 
 
 ## winners attitude
@@ -32,6 +32,7 @@
   knowing how the ball will react in different environments, e.g. spin, wind
 * being aware of your mental game
   post-round analysis
+  
 ## 7 ways of improving distance control with wedges
 * consistent contact
 * what does this shot feel like
