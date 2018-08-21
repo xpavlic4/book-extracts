@@ -8,14 +8,14 @@
 ## Eye dominance
 Choose an object in the distance.
 Now put both of your hands in front of you so that the object is hidden behind your palms.
-Now for a hole between your palms so that the object fits there.
+Now form a hole between your palms so that the object fits there.
 Now close one of your eyes and see if the object is still visible or not.
 The majority of people is either left or right eye dominant.
 
 ## Putting tempo
 
 The correct putting tempo is 2 (backswing) to 1 (downswing).
-Could be measured on an app named Puttronome.
+Could be measured on an iPhone application named Puttronome.
 
 ## Distance in Putting
 Time and tempo in putting is constant. Longer putts have also 2:1 ration and the same time spent backswing vs downswing.
