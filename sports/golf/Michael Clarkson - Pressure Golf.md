@@ -1,8 +1,8 @@
 ## Zones in sport
 
 * Flow - lost in addiction
-* The arouseal zone - short flw at accelerated level
-* The panless zone - pain is numbed
+* The arousal zone - short flow at accelerated level
+* The painless zone - pain is numbed
 * The long-term zone - over a season
 
 ## Pressure management
@@ -11,12 +11,12 @@ Say aloud - "I have choked"
 
 feelings before important shots shows you motivates
 
-constant selfciricism causes self-doubt
+constant self-criticism causes self-doubt
 
 ### Process
 * self-diagnose - identify a problem and name it
 * get rid of it
-* practice - empty yourselft of the destrucive attachement
+* practice - empty yourself of the destructive attachment
 
 give yourself a deferent name on the golf course
 
@@ -26,12 +26,12 @@ Confidence
 
 Top male golfers seems to prove something to their fathers.
 
-Practice embarassement
-* tension and nervosness are friends not enemies
+Practice embarrassment
+* tension and nervousness are friends not enemies
 
 Practice pressure - weak after Week
 
-Muscle memory - natural instincs will take over
+Muscle memory - natural instincts will take over
 
 Pressure reliever - your trusted stub
 
