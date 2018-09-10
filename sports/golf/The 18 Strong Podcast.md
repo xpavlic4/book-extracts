@@ -1,4 +1,8 @@
 # 18Strong podcast
+# 205: Dr. Mike
+* we are all unique like a snowflake, but melt the same
+* are you type of kangaroo (Justin Thomas) or gorilla
+
 
 # 200: local club champion
 * you cannot learn the game of golf 2 days prior to the tournament
@@ -12,7 +16,7 @@ every time you hit a golf ball it is like someone hit you in American football
 
 # 191: untucked golf Skratch TV
 
-# 190: the back mechnic docor
+# 190: the back mechanic doctor
 # 189: superspeed golf
 
 # 188: get better every day
