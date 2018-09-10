@@ -21,3 +21,5 @@ Blueprint:
 * Chip/Pitch shots - 40% saves, 8% error (missed the green)
 * Sand shots - 20% saves, 22% errors (missed the green)
 * putting - 5 1-putts, one 3-putt
+
+# How much should I practice
