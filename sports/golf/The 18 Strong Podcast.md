@@ -1,4 +1,7 @@
 # 18Strong podcast
+# 206: recovery routine
+
+
 # 205: Dr. Mike
 * we are all unique like a snowflake, but melt the same
 * are you type of kangaroo (Justin Thomas) or gorilla
