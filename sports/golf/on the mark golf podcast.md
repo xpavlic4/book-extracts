@@ -1,3 +1,19 @@
+# Dave stockton putting
+* start putt with your left hand only, 3, 5, feet
+* chip with your left hand only
+* grip pressure,
+* do not wait until it is  your turn when putting, do something
+* never tell a kid go out and don't be nervous
+
+# Mark Immelman and Will Haskett Discuss Golf Instruction and Statistical Data
+
+* tee-to-green strokes gained is the most important stat on tour, everybody who won this year 2018 is there
+* putting 5 feet is the easiest way to improve in short term
+* be good on shot number 3 on every hole
+  * hole-outs on par3
+  * first putt on par4
+  * approach on par5
+
 # Chris Malloy
 * par5 strategy
   * never ask or yell at your player if they had one blowup hole. just ask questions
