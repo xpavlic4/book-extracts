@@ -1,6 +1,11 @@
 # 18Strong podcast
-# 206: recovery routine
+# 209 : 5 things good golfers do
+* practice  with purpose
+* take care of your body
+* your the hcp will tend to be average of 5 people you are around
+* think about course strategy and feedback
 
+# 206: recovery routine
 
 # 205: Dr. Mike
 * we are all unique like a snowflake, but melt the same
