@@ -1,3 +1,5 @@
+# GolfTec
+
 # Dave stockton putting
 * start putt with your left hand only, 3, 5, feet
 * chip with your left hand only
