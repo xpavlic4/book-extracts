@@ -1,4 +1,5 @@
 # GolfTec
+* if you want to train hip turn at the impact, train it so that you nail positions in the follow-through with hands parallel
 
 # Dave stockton putting
 * start putt with your left hand only, 3, 5, feet
