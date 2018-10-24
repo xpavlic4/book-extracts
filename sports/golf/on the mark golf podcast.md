@@ -1,3 +1,8 @@
+# Mark Immelman
+* be decise when the chips are down
+* be a showman no matter what your skillset are
+* on tough shots, you have to go with shots you trust
+
 # GolfTec
 * if you want to train hip turn at the impact, train it so that you nail positions in the follow-through with hands parallel
 
