@@ -1,6 +1,6 @@
 # Mark Immelman
-* be decise when the chips are down
-* be a showman no matter what your skillset are
+* be decide when the chips are down
+* be a showman no matter what your skill-set are
 * on tough shots, you have to go with shots you trust
 
 # GolfTec
