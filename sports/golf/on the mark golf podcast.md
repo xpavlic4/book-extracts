@@ -1,3 +1,12 @@
+# 20181104 Denny Lucas
+* if there is a front bunker and the pin is tucked behind it, play over the flag
+
+# 20181101 Dottie Petter
+* DJ hitting wedges on the range for 25 minutes
+
+# Andrew Putnam
+
+
 # Mark Immelman
 * be decide when the chips are down
 * be a showman no matter what your skill-set are
