@@ -1,4 +1,9 @@
 # 18Strong podcast
+
+# 212 : nutricion
+* eat jerky, nuts, seeds
+* first thing to do in the morning is drink 0.7 l for 90 kg male
+
 # 209 : 5 things good golfers do
 * practice  with purpose
 * take care of your body
