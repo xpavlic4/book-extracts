@@ -1,8 +1,24 @@
 # golfstateofmind.com
+## Gamifying practice for long-term skill development
+Gamifying can help with long term acquisition and creates pressure which simulates more of how we feel on the course.
+Every session should have a goal.
+Tasks and challenges for learning are neither too easy or too hard (according to your skill level).
+
+* full shot challenge
+  * 3 targets, 100, 150 and 200 yards
+  * Tour player precision reference number
+    * 40 ft for 200 yards
+    * 28 ft for 150 yards
+    * 20 ft for 100 yards
+  * get 3 balls in a row into your target area
+
+* short game trajectory control challenge
+  * 3 different trajectory shots has to land within 3 ft of the landing spot and 6 ft of the pin
+
 ## mental skills
 * the ability to focus and concentrate
 * stay commited to your shot once you decided
-* stay in present 
+* stay in present
 
 ## visualization
 * 100% commitment to the shot means "subconscious" is doing it.
