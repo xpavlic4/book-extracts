@@ -1,4 +1,13 @@
 # golfstateofmind.com
+## Improve your game during winter
+* calculate strokes gained
+* set specific goals for 2019 and how to get to them
+* start a golf specific fitness regime
+* meditate, use Headspace or Insifght app
+* practice mindfulness, you accept you cannot control your thoughts and tension
+ it's the resistance that causes the frustration and tension and ultimately magnifies that negative thought or emotion
+* make gratitude a daily habit ()
+
 ## Gamifying practice for long-term skill development
 Gamifying can help with long term acquisition and creates pressure which simulates more of how we feel on the course.
 Every session should have a goal.
