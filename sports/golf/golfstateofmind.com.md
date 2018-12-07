@@ -9,7 +9,7 @@
 * make gratitude a daily habit
 
 ## Gamifying practice for long-term skill development
-Gamifying can help with long term acquisition and creates pressure which simulates more of how we feel on the course.
+Gamefying can help with long term acquisition and creates pressure which simulates more of how we feel on the course.
 Every session should have a goal.
 Tasks and challenges for learning are neither too easy or too hard (according to your skill level).
 
@@ -26,7 +26,7 @@ Tasks and challenges for learning are neither too easy or too hard (according to
 
 ## mental skills
 * the ability to focus and concentrate
-* stay commited to your shot once you decided
+* stay committed to your shot once you decided
 * stay in present
 
 ## visualization
@@ -66,7 +66,7 @@ Tasks and challenges for learning are neither too easy or too hard (according to
 ## 7 ways of improving distance control with wedges
 * consistent contact
 * what does this shot feel like
-* use external focus and visualised intention
+* use external focus and visualized intention
 * light hands 3 on scale 1-10
 * commitment
 * use clock system
