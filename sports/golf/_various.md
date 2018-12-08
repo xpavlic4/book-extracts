@@ -1,6 +1,6 @@
 # How to become a scratch golfer
 ## Birdie mindset
-Aim to birdie every hole, or git yourself a birdie chance. Think every hole as a opportunity to score birdie instead of shooting a par.
+Aim to birdie every hole, or give yourself a birdie chance. Think every hole as a opportunity to score birdie instead of shooting a par.
 
 # Practice areas
 * reduce the size of big misses of the tee
