@@ -35,7 +35,7 @@ Phases:
 
 ## Club throwing experiment
 Experiment where you should swing the club without a ball on the ground and try to release it towards the target.
-Back-swing to downswing ration is 3 to 1 (normal) vs 2:1 (in throwing), i.e. many people try to slow down before impact
+Back-swing to downswing ratio is 3 to 1 (normal) vs 2:1 (in throwing), i.e. many people try to slow down before impact
 understanding is the lowest step in learning
 
 ## Coaching
@@ -48,35 +48,35 @@ understanding is the lowest step in learning
 * ask "what did you learn" instead of "what did you shot"
 * lead by examples (child learn by who you are not by what you say)
 
-## Learning
+## Learning vs stepping out of your comfort zone
 Learning and growth require a willingness to explore and take risks which often leads to confusion and discomfort.
 
-## Trust
+## Trust of muscle memory
 Things in your head are those you cannot trust, only things ingrained in your body. Swing is so complicated you cannot govern it consciously. That's why you should swing without a swing thought
 
-## Competition
+## Competition is you against you
 It is you versus you (your competitor supports you in your growth). Your competitor is your ally not adversary.
 
 ## Future of golf
 * extraordinary people live lives backwards. They create a future and live into it. Similar to 7 habits: begin with the end of your mind
-* possibility of new future - every thing is open whereas expectations are fixed, either/or and lead to failed expectations.
+* possibility of new future - everything is open whereas expectations are fixed, either/or and lead to failed expectations.
 
-## Source of consistency
+## Source of consistency is your deepest you
 The deepest part of you doesn't change. You have to experience it and play from it. Golf is expression of what you are.
 
 # Exercises
 
-## Putting
+## Putting into unknown space
 Try to be aware of the space behind the hole. Your brain doesn't like to putt into unknown areas. That's why many putts are short-term.
 
 ## Playing
 Do not make an excuses when you hit a bad shot. Excuses (alias stories) lives in your head and reduces awareness.
 
-## Purpose
+## Purpose of playing golf
 * write down why you really play golf
 * what makes you really happy
 
-# Driving range
+# Driving range session meditation without any judging
 * hit a bucket of balls without judging it
 * just observing, not try-to-fix, let the chatter be, no evaluations. let it go as clouds on the sky, just be aware but do not judge them
 
