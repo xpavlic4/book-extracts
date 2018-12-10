@@ -1,3 +1,13 @@
+# 20181206 Mark Immelman tips
+* don't screw up talent
+* the clubface is always king
+* if the message (from a golf instructor) is not properly conveyed it doesn't matter
+* grab the low-hanging fruit (the easiest change)
+* the most important shot is the 3rd one on every hole
+* develop a go-to shot, when nothing works
+* prepare for adversity
+* (for instructors) regulate playing/practice time 
+
 # 20181104 Denny Lucas
 * if there is a front bunker and the pin is tucked behind it, play over the flag
 
