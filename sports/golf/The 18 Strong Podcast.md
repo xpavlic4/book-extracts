@@ -1,4 +1,11 @@
 # 18Strong podcast
+# 214: Stew Hagestad
+* practice till you cannot do it wrong
+* if I play 18 holes once a week that's enough
+* get up 6am, workout 7-8, after work I practice till the sun goes down
+* practice 3-4 times a week to have muscle memory
+* learn how to hit it far and the accuracy part will be leanrt later
+* be specific, do not hit balls without any purpose, any plan
 
 # 212 : nutricion
 * eat jerky, nuts, seeds
