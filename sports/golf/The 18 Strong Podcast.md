@@ -1,4 +1,10 @@
 # 18Strong podcast
+# 216 Ed Mylett
+* attach a reason to every goal you have
+* what the common denominator for all successful people - some kind of depression
+* if you move constantly you cannot feel down
+* do not watch your mobile phone first 30 minutes
+
 # 214: Stew Hagestad
 * practice till you cannot do it wrong
 * if I play 18 holes once a week that's enough
