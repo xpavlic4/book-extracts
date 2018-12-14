@@ -1,3 +1,9 @@
+# 5 ways of not being a choker
+* shift your focus to what you desired outcome is (not negative like dont hit that bunker)
+* learn through observation, not by step-by-step instruction
+* pre-shot routine shifts the mind away from too much outcome thinking
+* 
+
 # 10 little things that will make a big difference in your game
 * first putt - focus on aspects that affect speed
 * 3 stages of bunker play - get out, get onto and get close
