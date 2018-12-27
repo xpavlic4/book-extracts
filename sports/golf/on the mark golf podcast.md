@@ -1,3 +1,12 @@
+# 20181223 how to maximize off-season practice
+* random practice helps
+* gate drill putting helps hitting center of the face
+* if working with the camera:
+  * pick one or two things to work on
+  * setup has to be consistent (e.g. camera position)
+* practice in front of a mirror more
+* do planks in the gym
+
 # 20181206 Mark Immelman tips
 * don't screw up talent
 * the clubface is always king
@@ -6,7 +15,7 @@
 * the most important shot is the 3rd one on every hole
 * develop a go-to shot, when nothing works
 * prepare for adversity
-* (for instructors) regulate playing/practice time 
+* (for instructors) regulate playing/practice time
 
 # 20181104 Denny Lucas
 * if there is a front bunker and the pin is tucked behind it, play over the flag
