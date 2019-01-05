@@ -1,8 +1,22 @@
+# scratch from single digits
+* play as much as possible
+* when you play, be sure there is something on the line (money or tournament)
+* drive the ball relatively straight and long
+* hit the ball solidly from 130 to 180 yards
+* be a great wedge player 80 - 130 yards, inside 30 feet almost every time
+* wedge in your hand means you have greater chance to hole it as miss the green
+* don't spend time 180 - 220 yards
+* do not overuse flop shot
+* practice various short-game trajectories
+* be a good lag putter
+* be good inside 6 feet
+* keep stats
+
 # 5 ways of not being a choker
-* shift your focus to what you desired outcome is (not negative like dont hit that bunker)
+* shift your focus to what you desired outcome is (not negative like don't hit that bunker)
 * learn through observation, not by step-by-step instruction
 * pre-shot routine shifts the mind away from too much outcome thinking
-* 
+*
 
 # 10 little things that will make a big difference in your game
 * first putt - focus on aspects that affect speed
