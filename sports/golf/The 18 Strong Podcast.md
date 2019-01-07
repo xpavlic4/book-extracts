@@ -1,4 +1,10 @@
 # 18Strong podcast
+# 219 Rotary Swing Chuck Quinton
+* https://rotaryswing.com/swing-reviews/get-review
+* it takes 3000 repetitions to learn our brain a new pattern
+* if you take 100 reps a day, it took 30 days to have 3000 reps
+* best gadget is mirror
+
 # 216 Ed Mylett
 * attach a reason to every goal you have
 * what the common denominator for all successful people - some kind of depression
