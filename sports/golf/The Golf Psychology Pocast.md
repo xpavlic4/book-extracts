@@ -1,3 +1,10 @@
+# How champions plan for every outcome
+* practice all possible shortgame shots so you have confidence on the teebox, you know no matter what happend you can play that shortgame shot. Otherwise it is in the back of your mind and you unconsciousnessly avoid it. 
+
+# Mental coaching goals
+* play in a competition the same way how you play in your practice round
+* practice efficiency - routine, learning principles
+
 # How to control your temper
 * temper - getting frustrated with things in the past
 * control your personal triggers and how you react to them, create different responces
