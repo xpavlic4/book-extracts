@@ -1,3 +1,9 @@
+# 20190107 Rotational Sports performance
+* two thing high achievers haven
+  * they want to win no matter what, passion
+  * process to achieve it and stick to it
+  * if you are dehydrated all your stats are down
+
 # 20181223 how to maximize off-season practice
 * random practice helps
 * gate drill putting helps hitting center of the face
