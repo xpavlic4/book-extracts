@@ -1,3 +1,5 @@
+# 20190109 Chuck Evans
+* 
 # 20190107 Rotational Sports performance
 * two thing high achievers haven
   * they want to win no matter what, passion
