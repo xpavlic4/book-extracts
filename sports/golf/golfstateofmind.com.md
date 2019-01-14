@@ -1,4 +1,10 @@
 # golfstateofmind.com
+## Competitive practice
+* add time between shots in practice (at least 1 minute)
+* develop a routine as a process that anchors you to the present moment
+* stress management techniques are mainly breathing and course process (routine)
+* more pressure (increase heart rate or add consequences like holing a bunker shot, holing 5x 5ft putt)
+
 ## Improve your game during winter
 * calculate strokes gained
 * set specific goals for 2019 and how to get to them
