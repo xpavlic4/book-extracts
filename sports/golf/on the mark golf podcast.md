@@ -1,5 +1,13 @@
+# 20190114 Pro Golf synopsis
+* putting is 2nd most importing part of the game
+* play for the worst shot
+* people hit 3w worse than driver
+* the close you are to the hole the closer you will end up on other shot
+* the first 6 holes are most important
+* last 3 holes are important on Tour
+
 # 20190109 Chuck Evans
-* 
+
 # 20190107 Rotational Sports performance
 * two thing high achievers haven
   * they want to win no matter what, passion
