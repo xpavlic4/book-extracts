@@ -1,3 +1,7 @@
+## must have tools for digital marketing
+
+https://crello.com
+create images for articles
 ## Bootstrapping lessons learned
 
 Bootstrapping is about launching products on existing markets (so the idea is already validated), niche it down ideally to 1000 customers worldwide (1000 x $50/m, ±$500k/y), then niche it down again to reach and segment target audience easily, establish better execution and UX as a main competitive advantage (and to attract competitors refugees) and find your flywheel via semi-automated marketing/content creation (to achieve the lowest possible CPA). Don't create new markets, don't chase innovative ideas. Prefer optimization over innovation.
