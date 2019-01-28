@@ -1,4 +1,13 @@
 # golfstateofmind.com
+## Swing thoughts
+* technical cues examples:
+  - controlled high finish
+  - wide takeaway
+  - keep your height
+* what are my tendencies when playing under pressure? Am I too fast
+* swing tempo https://itunes.apple.com/us/app/total-game/id329937776?mt=8
+* internal vs external focus, better is external  
+
 ## Competitive practice
 * add time between shots in practice (at least 1 minute)
 * develop a routine as a process that anchors you to the present moment
