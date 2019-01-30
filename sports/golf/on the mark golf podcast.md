@@ -1,5 +1,21 @@
-# Oliver Morton
+# Bruce Rearick Putting
+* https://bargolfinstruction.blogspot.com/
 
+# Tips PGA Tour episode 4
+* aim middle of the green (said winner Justin Rose)
+* stay patient (said Rory McIlroy when asked when he will winn again)
+
+# Oliver Wilson
+* you need to right people around you and not take you away off your instincs
+
+# Dr Bob Winters plays mistake-free golf
+* everybody makes mistakes
+* the good is enemy of being great
+* if you commit to a shot, you are 100% in
+* you play one shot at the time, stay in the present
+* do not hit a shot if you are not ready or in doubt
+
+# Oliver Morton
 
 # 20190114 Pro Golf synopsis
 * putting is 2nd most importing part of the game
