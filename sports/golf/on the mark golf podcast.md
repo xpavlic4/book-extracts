@@ -1,5 +1,8 @@
 # Bruce Rearick Putting
 * https://bargolfinstruction.blogspot.com/
+* in putting, you being you
+* putt with your eyes closed, train your judgments
+* what it feels to hit 5, 10 feet putt
 
 # Tips PGA Tour episode 4
 * aim middle of the green (said winner Justin Rose)
