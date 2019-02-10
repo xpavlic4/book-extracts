@@ -1,21 +1,18 @@
 # Atomic habits
 
-### Negative thoughts compound
 The more you think of yourself as worthless, stupid or ugly, the more you condition yourself to interpret life that way.
 
-### Plateau of Latent Potential
 In order to make a meaningful difference, habits need to persist long enough to break through Plateau of Latent Potential - time when you have no success despite working hard.
 
 Goals are about the results you want to achieve. Systems are about the processes that lead to those results.
 
-Goals restrict your happiness. "Once I reach my goal, then I will be happy" means you putt off happiness off until the next milestone.
+"Once I reach my goal, then I will be happy" means you putt off happiness off until the next milestone.
 
 Once a person believes in a particular aspect of their identity, they are more likely to act in alignment with that belief.
 
 There is internal pressure to maintain your self-image and behave in a way that is consistent with your beliefs.
 
 There are three levels of change: outcome change, process change and identity change. The most effective way to change your habits is to focus not on what you want to achieve, but on who you wish to become.
-
 Becoming the best version of yourself requires you to continuously edit your beliefs, and to upgrade and expand your identity.
 
 The real reason habits matter is not because they can get you better results, but because they can change your beliefs about yourself.
@@ -59,7 +56,7 @@ Make the cues of good habits obvious in your environment.
 
 Gradually, your habits become associated not with a single trigger but with entire context surrounding the behavior. The context becomes the cue.
 
-It is easier to build new habits in a anew environment because you are not fighting against old cues.
+It is easier to build new habits in a new environment because you are not fighting against old cues.
 
 ### Secrets to self-control
  The inversion of the 1st Law of Behavior Change is make it invisible.
@@ -72,8 +69,8 @@ It is easier to build new habits in a anew environment because you are not fight
 
  Self-control is a short-term strategy, not a long-term one.
 
- ## The 2nd law - make it attractive
- ### How to make a habit irresistible
+## The 2nd law - make it attractive
+### How to make a habit irresistible
 
  The more attractive an opportunity is, the more likely it is to become habit-forming.
 
@@ -105,7 +102,7 @@ Your habits are modern-day solutions to ancient desires.
 
 The cause of your habits is actually the prediction that precedes them. The prediction leads to a feeling. Highlight the benefits of avoiding a bad habit to make it seem unattractive.
 
-Habits are attractive when we associate them with positive feelings and unattractive when we associate them with negative feelings. Create a motivation ritual by doin something you enjoy immediately before a difficult habit.
+Habits are attractive when we associate them with positive feelings and unattractive when we associate them with negative feelings. Create a motivation ritual by doing something you enjoy immediately before a difficult habit.
 
 ## The 3rd law - make it easy
 
@@ -165,7 +162,7 @@ A habit tracker is a simple way to measure whether you did a habit - like markin
 
 Habit trackers and other visual forms of measurement can make your habits satisfying by providing clear evidence of your progress.
 
-Don't break the chan. Try to keep your habit streak alive.
+Don't break the chain. Try to keep your habit streak alive.
 
 Never miss twice. If you miss one day, try to get back on track as quickly as possible.
 
