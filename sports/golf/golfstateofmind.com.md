@@ -1,4 +1,17 @@
 # golfstateofmind.com
+## Performance state
+* being overly concerned about the result restricts you
+* do not expect perfection, mistakes arise no matter what
+* recover from mistakes fast
+* avoid chatter, find the peace of your mind, be focused
+* best players are optimists
+* when you play poorly, try to remember how you feel when you played your best round
+  * use breathing
+  * slow down between shots
+  * visualization
+  * positive self-talk
+  * post-shot routine
+  * use shot library or positive comments
 ## Swing thoughts
 * technical cues examples:
   - controlled high finish
