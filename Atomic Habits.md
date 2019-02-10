@@ -1,8 +1,9 @@
 # Atomic habits
 
-Negative thoughts compound. The more you think of yourself as worthless, stupid or ugly, the more you condition yourself to interpret life that way.
+### Negative thoughts compound
+The more you think of yourself as worthless, stupid or ugly, the more you condition yourself to interpret life that way.
 
-
+### Plateau of Latent Potential
 In order to make a meaningful difference, habits need to persist long enough to break through Plateau of Latent Potential - time when you have no success despite working hard.
 
 Goals are about the results you want to achieve. Systems are about the processes that lead to those results.
