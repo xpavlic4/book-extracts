@@ -1,5 +1,7 @@
+# How to stay in the zone
+* do not judge, do not focus on the outcome
 # How champions plan for every outcome
-* practice all possible shortgame shots so you have confidence on the teebox, you know no matter what happend you can play that shortgame shot. Otherwise it is in the back of your mind and you unconsciousnessly avoid it. 
+* practice all possible shortgame shots so you have confidence on the teebox, you know no matter what happend you can play that shortgame shot. Otherwise it is in the back of your mind and you unconsciousnessly avoid it.
 
 # Mental coaching goals
 * play in a competition the same way how you play in your practice round

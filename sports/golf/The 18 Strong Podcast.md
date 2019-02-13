@@ -1,7 +1,7 @@
 # 18Strong podcast
-# 223 TPI
-* 
+# 224
 
+# 223 TPI
 # 222 new rules
 * new OB rule is optional
 * you cannot ground your club in the bunker
