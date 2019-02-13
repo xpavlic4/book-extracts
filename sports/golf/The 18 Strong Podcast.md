@@ -1,4 +1,13 @@
 # 18Strong podcast
+# 223 TPI
+* 
+
+# 222 new rules
+* new OB rule is optional
+* you cannot ground your club in the bunker
+* you move loose impediemnts and the ball moved - you got penalized
+
+
 # 219 Rotary Swing Chuck Quinton
 * https://rotaryswing.com/swing-reviews/get-review
 * it takes 3000 repetitions to learn our brain a new pattern
