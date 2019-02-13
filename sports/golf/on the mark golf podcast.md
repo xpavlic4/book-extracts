@@ -1,3 +1,17 @@
+# Virgil Herring on coaching Snedeker
+*
+
+# Tips no. 5
+* if you feel adrenaline grab one more less club
+* have a pre-shot routine that is automatic
+* the value of the shot will be determined by the shot that follows
+
+# Lou Stagner on data
+* uphill putts are much more easier
+* uphill putts make percentage 75%, downhill 66%
+* the best wedge players when they miss they miss to the fat side of the green (no shortsight)
+* having a great angle to the green doesnt make any benefit
+
 # Bruce Rearick Putting
 * https://bargolfinstruction.blogspot.com/
 * in putting, you being you
