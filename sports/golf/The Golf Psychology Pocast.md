@@ -1,3 +1,7 @@
+# How mental coaching works
+* mental coaching is not about therapy, it is educating your mental skills
+* helps take your practice into the competition
+
 # How to stay in the zone
 * do not judge, do not focus on the outcome
 
