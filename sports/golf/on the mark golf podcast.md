@@ -1,6 +1,12 @@
-# Virgil Herring on coaching Snedeker
-*
+# Tips no. 6
+* be prepared  
+  - (raingear Goretex)
+  - extra towels
+  - rain gloves
+* attitude (be positive)
+* decisivness
 
+# Virgil Herring on coaching Snedeker
 # Tips no. 5
 * if you feel adrenaline grab one more less club
 * have a pre-shot routine that is automatic
