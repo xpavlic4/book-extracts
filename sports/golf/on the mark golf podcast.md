@@ -1,3 +1,6 @@
+# Breaking bad Habits
+* Sir Nick Faldo wanted to practice more in front of a mirror
+
 # Tips no. 6
 * be prepared  
   - (raingear Goretex)
