@@ -1,19 +1,4 @@
 # golfstateofmind.com
-# 10 mental strategies to let go of your misses
-* miss is not a mistake, it is how to response to them
-Strategies:
-* golf is not a game of perfect
-* develop a growth mindset vs fixed mindset
-* avoid outcome goals (avoid 3 putts, breaking 80), those add pressure
-* limit negative self-talk
-* seperate you the player from your the person (when ego is involved it is difficult to deal with mistakes)
-* awareness of how you feels
-* performance journal and post-round review
-* recall past success
-* accept what is true
-* good post-shot routine (review your tempo, routine)
-
-
 ## Performance state
 * being overly concerned about the result restricts you
 * do not expect perfection, mistakes arise no matter what
