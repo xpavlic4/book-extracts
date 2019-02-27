@@ -1,3 +1,13 @@
+# Biomechanics
+
+
+# putting
+* minimize stroke length for short putts (obvious
+* stability in lower parts of the body
+* relaxed on upper parts of the body
+* try to hit into a bottle in the cup
+* try hit right (left) of the tee on right-to-left (left-to-right) putts to promote sinking from above
+
 # Breaking bad Habits
 * Sir Nick Faldo wanted to practice more in front of a mirror
 
