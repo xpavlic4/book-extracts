@@ -1,5 +1,10 @@
-# Biomechanics
+# Martin Chuck
 
+
+# Tips episode 9
+* try to chip with leading hand low
+* couple of practice swings from 9 o'clock to 9 o'clock
+# Biomechanics
 
 # putting
 * minimize stroke length for short putts (obvious
