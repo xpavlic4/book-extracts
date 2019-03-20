@@ -1,3 +1,14 @@
+# Lincicome
+* putt with your hands crosshanded for short putts
+    - it's tough to yip it
+    - Whenever you feel it your normal putting stroke won't work
+
+# Tips episode 11
+* perspective (not be defined by your score)
+* persistence
+* poise
+* perseverence
+
 # Tips episode 10
 # Mark Russo
 3 key things to improve
