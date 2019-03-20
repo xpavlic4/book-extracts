@@ -1,5 +1,12 @@
-# Martin Chuck
+# Tips episode 10
+# Mark Russo
+3 key things to improve
+* drive better
+* 50 yards and in
 
+# Martin Chuck
+* hit the club with right hand only.
+* also for short-game
 
 # Tips episode 9
 * try to chip with leading hand low
