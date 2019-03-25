@@ -15,6 +15,9 @@
 * drive better
 * 50 yards and in
 
+your left feet should flair out so that you can rotate better.
+
+
 # Martin Chuck
 * hit the club with right hand only.
 * also for short-game
