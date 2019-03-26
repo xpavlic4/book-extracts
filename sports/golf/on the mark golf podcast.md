@@ -1,3 +1,7 @@
+# Pete Esposito
+Webb Simpson: I am not a mad man when I make a mistake, but I will never allow myself to make two.
+* words wedge and full do not come in one sentence
+* allow yourselft to hit bad shots, tour players laugh when the shank, amateours start to be nervous
 # Lincicome
 * putt with your hands crosshanded for short putts
     - it's tough to yip it
