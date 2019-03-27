@@ -1,3 +1,12 @@
+# Justin Thomas
+* never push your kids to do something
+* help each other on the college team
+* my typical day:
+  - as much sleep as I can
+  - start every session with putting and chipping (with each wedge), 60%
+  - wedge game, hit numbers 20%
+  - rest driver and woods
+
 # Pete Esposito
 Webb Simpson: I am not a mad man when I make a mistake, but I will never allow myself to make two.
 * words wedge and full do not come in one sentence
