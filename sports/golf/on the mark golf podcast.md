@@ -1,3 +1,8 @@
+# David Toms
+* do not think ahead of time, do not prepare acceptance speech if you haven't won yet
+* if you slow-tempo guy with irons, you should also putt slowly
+* try hitting wedges from a car-path 50 yards away from the screen
+
 # Justin Thomas
 * never push your kids to do something
 * help each other on the college team
