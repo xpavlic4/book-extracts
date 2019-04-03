@@ -1,3 +1,9 @@
+# John Gregory
+
+# Danny Kanell
+* be passionate about your game
+* it is all about your work ethic, there are so many wasted talent
+
 # David Toms
 * do not think ahead of time, do not prepare acceptance speech if you haven't won yet
 * if you slow-tempo guy with irons, you should also putt slowly
