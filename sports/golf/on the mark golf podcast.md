@@ -1,3 +1,5 @@
+# Zane Scotland
+* my best performances when I felt terrible
 # Shots to hole.com
 * 75% of shots on PGA Tour are played within 40 yards
 * number of putts is totally useless
