@@ -1,3 +1,15 @@
+# Shots to hole.com
+* 75% of shots on PGA Tour are played within 40 yards
+* number of putts is totally useless
+* PGATour from 100 yards
+  - 1/3 makable putt
+  - 1/3 two-putt
+  - rest is scrambling
+* every inch you get closer to the hole, you improve by 1 shot
+# Tips from PGATour
+* do not concede winning putts
+* if you are ahead, offer a take/take
+
 # John Gregory
 
 # Danny Kanell
