@@ -2,6 +2,9 @@
 * my best performances when I felt terrible
 * ask yourself what is a good score for me today? even par is a good score for a pro. be honest with yourself.
 * if you cannot hit a fade today than hit a draw - it is as simple as that
+* your mindset makes the golfer
+* golf does go off, but it will go back
+
 # Shots to hole.com
 * 75% of shots on PGA Tour are played within 40 yards
 * number of putts is totally useless
