@@ -1,3 +1,22 @@
+# Josh Gregory
+* practice chipping, PROs have chips and tap-ins, elite college players have to sing 5-8 feet
+* make chipping competitins, something has to be at stake
+* 4 aspects of game:
+  - full swings
+  - chipping
+  - putting
+  - distance wedges
+* types of practice:
+  - technical
+  - random
+  - competition
+
+# Tips nr. 14
+* every shot Tiger hit on Maters 2019 it was a smart shot - said Jack Nicklaus
+* Woods: to play well you have to play shot to the safe spots and 2 putt
+* commit to every shot, even 1 and half foot putts
+* Woods: never give up
+
 # Daniel Berger
 * first thing I do on the range, I hit the shot I am comfortable with until it works
 
