@@ -1,5 +1,6 @@
 # Daniel Berger
 * first thing I do on the range, I hit the shot I am comfortable with until it works
+
 # Zane Scotland
 * my best performances when I felt terrible
 * ask yourself what is a good score for me today? even par is a good score for a pro. be honest with yourself.
