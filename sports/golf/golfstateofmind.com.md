@@ -1,4 +1,12 @@
 # golfstateofmind.com
+## the benefits of mental rehearsal for golf
+* 3% of processing power is consciously controlled, 97% unconsciously
+* daily 20 minutes before sleep
+  - start meditate, silence the inner chatter
+  - identify what you want to change - eg. confidence over short putts, closing out a win
+  - now visualize with all senses
+  - find key words you can identify with new behaviour eg. stick to the process
+
 ## how to succeed at tournament golf
 * the more you try the harder it becomes, concentrate on the process rather than on the score
 * you are not a refloction of your score, golf and you are two separate parts of life
