@@ -10,6 +10,12 @@
   - technical
   - random
   - competition
+* there are not many birdies scored with 7i from the green on PGATour
+* you have A, B or C game for the day. play accordingly
+* best chippers leave the ball in easy up&down positions
+* on plane chip, draw feeling
+* best putters try to leave right hand out of it, practice with left hand low and than go back to conventional
+* practice your putting setup with max 5 feets
 
 # Tips nr. 14
 * every shot Tiger hit on Maters 2019 it was a smart shot - said Jack Nicklaus
