@@ -1,3 +1,6 @@
+# Hally Leadbetter
+* let golf find young people, do not force them into golf
+
 # Josh Gregory
 * practice chipping, PROs have chips and tap-ins, elite college players have to sing 5-8 feet
 * make chipping competitins, something has to be at stake
