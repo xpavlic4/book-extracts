@@ -1,5 +1,8 @@
 # Hally Leadbetter
 * let golf find young people, do not force them into golf
+* warmup is to warmup, not to get stressed how others hit it on the range
+* do not let your ego stay in a way and play with what you have today
+* human beings shy away from pain
 
 # Josh Gregory
 * practice chipping, PROs have chips and tap-ins, elite college players have to sing 5-8 feet
