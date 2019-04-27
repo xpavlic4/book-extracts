@@ -81,7 +81,7 @@ Do not make an excuses when you hit a bad shot. Excuses (alias stories) lives in
 * just observing, not try-to-fix, let the chatter be, no evaluations. let it go as clouds on the sky, just be aware but do not judge them
 
 ## Concentration
-Pick of of:
+Pick one of:
 * the ball
 * the club
 * the body
