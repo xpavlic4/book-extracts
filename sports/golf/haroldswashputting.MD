@@ -20,7 +20,7 @@ Could be measured on an iPhone application named Puttronome.
 ## Distance in Putting
 Time and tempo in putting is constant. Longer putts have also 2:1 ration and the same time spent backswing vs downswing.
 
-## Aimpoint
+## Aim-point
 Check the slope at the beginning of the putt, in the middle and last 1/3 of the path.
 Assign a number.
 Use that number for number of fingers.
