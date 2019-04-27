@@ -5,15 +5,16 @@
   - start meditate, silence the inner chatter
   - identify what you want to change - eg. confidence over short putts, closing out a win
   - now visualize with all senses
-  - find key words you can identify with new behaviour eg. stick to the process
+  - find key words you can identify with new behavior eg. stick to the process
 
 ## how to succeed at tournament golf
 * the more you try the harder it becomes, concentrate on the process rather than on the score
-* you are not a refloction of your score, golf and you are two separate parts of life
+* you are not a reflection of your score, golf and you are two separate parts of life
 * ask "what did you learn" after your round instead of "what did you shoot"
 * be optimistic, list things you did great after each round
 * be aware of how you are talking to yourself during your rounds
 * focus on what you can control (not how others play)
+
 ## Performance state
 * being overly concerned about the result restricts you
 * do not expect perfection, mistakes arise no matter what
@@ -27,6 +28,7 @@
   * positive self-talk
   * post-shot routine
   * use shot library or positive comments
+  
 ## Swing thoughts
 * technical cues examples:
   - controlled high finish
