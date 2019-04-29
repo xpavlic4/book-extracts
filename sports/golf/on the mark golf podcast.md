@@ -1,5 +1,5 @@
 # Shawn Clement
-* binocular vision from behind the ball is natural way to estimate for a person, the view from the side is skewed
+* binocular vision from behind the ball is natural way to estimate for a person, the view from the side is skewed 
 
 
 # Hally Leadbetter
