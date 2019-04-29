@@ -1,3 +1,7 @@
+# Shawn Clement
+* binocular vision from behind the ball is natural way to estimate for a person, the view from the side is skewed
+
+
 # Hally Leadbetter
 * let golf find young people, do not force them into golf
 * warmup is to warmup, not to get stressed how others hit it on the range
