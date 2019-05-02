@@ -7,7 +7,7 @@ Pillars of golfer's game:
 
 but only the human skills can change during the play, all other is set.
 
-#Awareness
+# Awareness
 Golfers have specific tendencies, recurring patterns when playing well and when they don't play well.
 
 * physical awareness
