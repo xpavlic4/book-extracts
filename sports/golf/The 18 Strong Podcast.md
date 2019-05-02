@@ -1,4 +1,12 @@
 # 18Strong podcast
+# The lost art of putting
+* asking the right question will guide you back to positive way, whereas positive thinking is more difficult to do
+
+# Jon Sherman
+* good players do not hit two bad shots in a row
+* use practice green, pick 18 positions around them and try to play 18 times up&down
+* if you are in the woods, the PGA Tour score average is bogey, so do not try to hit a par
+
 # adam long interview
 
 # 224
