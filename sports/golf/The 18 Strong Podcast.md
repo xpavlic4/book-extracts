@@ -1,4 +1,7 @@
 # 18Strong podcast
+# 1-minute training
+* your heart doens't know what your muscles are doing
+
 # The lost art of putting
 * asking the right question will guide you back to positive way, whereas positive thinking is more difficult to do
 
