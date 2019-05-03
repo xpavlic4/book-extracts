@@ -1,5 +1,8 @@
+# Tips nr. 16
+* if you are playing your last 5 holes in netto par, you are gaining on field, because people usually waste shots on last holes
+
 # Shawn Clement
-* binocular vision from behind the ball is natural way to estimate for a person, the view from the side is skewed 
+* binocular vision from behind the ball is natural way to estimate for a person, the view from the side is skewed
 
 
 # Hally Leadbetter
