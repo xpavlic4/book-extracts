@@ -1,3 +1,6 @@
+# Pat Goss
+* Luke Donald build his game around his strenghts when he was nr.1 in the world
+* only carry-distances are important from launch monitor
 # Utley on putting
 * face of the putter in the middle of the stance
 * a little bit of shaft lean
