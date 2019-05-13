@@ -1,4 +1,12 @@
 # golfstateofmind.com
+## 7 putting tips from brad faxon
+* there are no technical thoughts, he creates a picture and let his mind act accordingly
+* measure the success of a putt by the routine, not the outcome. if you are concerned whether the putt goes in or not, that creates a tention
+* the more precise is the visualization, the more "turn off" chatter will be
+* try to hole everything no matter how far it is, no thought about next putt
+* develop a trigger to start a stroke
+* be sure there is no tension in hands, forearms and biceps when he's over the ball
+
 ## the benefits of mental rehearsal for golf
 * 3% of processing power is consciously controlled, 97% unconsciously
 * daily 20 minutes before sleep
@@ -28,7 +36,7 @@
   * positive self-talk
   * post-shot routine
   * use shot library or positive comments
-  
+
 ## Swing thoughts
 * technical cues examples:
   - controlled high finish
