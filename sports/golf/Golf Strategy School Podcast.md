@@ -1,4 +1,8 @@
 # Golf Strategy School Podcast
+# 2 Keys to Putting consistency
+* amateurs underestimate the amount of break
+* amateurs start the putt agains the apex and end under the cup
+
 ## Layering success
 * have reasonable expectation, you are not hitting every GIR
 * let's say you are very confident with your pitching wedge, but very inconsistent with long irons. You start hitting a fariway 3 times in a row with your pitching wedge. When you have done that, you move on to 9i. Once you hit FIR 3 times in a row with your 9i, you go with 8i etc. Eventually you end up hitting FIR with your 4i. You are broadening your confidence into longer irons.
