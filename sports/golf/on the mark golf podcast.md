@@ -1,3 +1,7 @@
+# Tips nr. 17
+* look at your bad shots on your launch monitor
+* Homa (winner of a PGA Tour event), practice putting without a ball, watch the cadence
+
 # Pat Goss
 * Luke Donald build his game around his strenghts when he was nr.1 in the world
 * only carry-distances are important from launch monitor
