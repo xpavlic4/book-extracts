@@ -1,4 +1,11 @@
 # 18Strong podcast
+# Jentry Barton
+* for juniors: let it be your sport, do not specialize so quickly
+* there is no one swing for all
+
+# Nathane Jackson
+* do not trade balance for anything (balance in life, balance in nutrition, balance in training)
+
 # 1-minute training
 * your heart doens't know what your muscles are doing
 
