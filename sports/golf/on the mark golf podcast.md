@@ -1,3 +1,5 @@
+# Tips nr. 18
+
 # Tips nr. 17
 * look at your bad shots on your launch monitor
 * Homa (winner of a PGA Tour event), practice putting without a ball, watch the cadence
