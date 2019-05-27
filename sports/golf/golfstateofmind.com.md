@@ -1,4 +1,12 @@
 # golfstateofmind.com
+## 7 keys to brooks koepka's mental game
+* he believes he can win, there are 156 players in the field, only 80 make the cut, only 35 will play well, and the half of them choke under the pressure, so you have to beat only o few of them.
+* absolutely no expectations before each round, concentrate on hitting one shot at a time
+* always stay in the present, one hole at the time, do not talk about golf between shots
+* strong body language
+* acceptance of mistakes, move on after makeing a mistake
+* have tunnel-vision focus
+
 ## 7 putting tips from brad faxon
 * there are no technical thoughts, he creates a picture and let his mind act accordingly
 * measure the success of a putt by the routine, not the outcome. if you are concerned whether the putt goes in or not, that creates a tention
