@@ -1,3 +1,7 @@
+# Tups nr. 19
+* grinding every single shot, don't loose focus
+* never take shot off, no matter what
+
 # Tips nr. 18
 
 # Tips nr. 17
