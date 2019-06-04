@@ -1,3 +1,7 @@
+# On neing more present with Greg Cartin
+* when we are happy we achieve more, not the other way. we think we achieve something and than we are happy, but thats not true
+* everthing is based on numbers, you do not reach the number there are consequences. that makes stress
+
 # Tups nr. 19
 * grinding every single shot, don't loose focus
 * never take shot off, no matter what
