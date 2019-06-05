@@ -1,3 +1,6 @@
+# Tips nr. 20
+* "have fun and smile" said Jack Nicklaus to Patrick Cantley (winner of a PGATOUR event that week)
+
 # On neing more present with Greg Cartin
 * when we are happy we achieve more, not the other way. we think we achieve something and than we are happy, but thats not true
 * everthing is based on numbers, you do not reach the number there are consequences. that makes stress
