@@ -191,3 +191,8 @@ Habits are easier when they align with your natural abilities. Choose the habits
 Play a game that favors your strengths. If you can't find a game that favors you, create one.
 
 Genes do not eliminate the need for hard work. They clarify it. They tell us what to work hard on.
+
+
+# From mail
+## Inversion
+Solve problems by reversing them. You want to achieve success? Try ask yourselft what you want to avoid first. You have an important project? Envision the project failed und study the consequences.
