@@ -1,4 +1,11 @@
 # golfstateofmind.com
+## 5 bigest menal mistakes
+* go into a round with "process" mindset, no outcomes like shoot in 70ties
+* focus on the intension of the shot, not how physically you feel in the swing
+* be observer of negative talks, not participant. let them dissapear without paying attention to them
+* there are no bad shots, only learning opportunities. analyze them, how was tempo, commitment, tense etc.
+* have clear intention, have a clar vision before entering the play-box 
+
 ## 7 keys to brooks koepka's mental game
 * he believes he can win, there are 156 players in the field, only 80 make the cut, only 35 will play well, and the half of them choke under the pressure, so you have to beat only o few of them.
 * absolutely no expectations before each round, concentrate on hitting one shot at a time
