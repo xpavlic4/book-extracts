@@ -195,4 +195,4 @@ Genes do not eliminate the need for hard work. They clarify it. They tell us wha
 
 # From mail
 ## Inversion
-Solve problems by reversing them. You want to achieve success? Try ask yourselft what you want to avoid first. You have an important project? Envision the project failed und study the consequences.
+Solve problems by reversing them. You want to achieve success? Try ask yourselft what you want to avoid first. You have an important project? Envision the project failed und study the consequences. In court, the jury has to listen to both sides of the argument before making up their mind
