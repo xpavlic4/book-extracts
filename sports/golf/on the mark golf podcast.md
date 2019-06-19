@@ -1,3 +1,6 @@
+# Positive Practice Plans
+* if you loose engagement put your clubs down
+
 # Tips nr. 20
 * "have fun and smile" said Jack Nicklaus to Patrick Cantley (winner of a PGATOUR event that week)
 
