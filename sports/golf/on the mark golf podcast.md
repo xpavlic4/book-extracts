@@ -1,3 +1,8 @@
+# Tips nr. 21
+* putt uphill
+* strike putt flush
+* positive and lifting attitude is everything
+
 # Positive Practice Plans
 * if you loose engagement put your clubs down
 
