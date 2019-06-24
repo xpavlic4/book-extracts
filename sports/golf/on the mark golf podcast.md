@@ -5,6 +5,7 @@
 
 # Positive Practice Plans
 * if you loose engagement put your clubs down
+* find out a distance on each hole where you can shoot even par. changes your mindset
 
 # Tips nr. 20
 * "have fun and smile" said Jack Nicklaus to Patrick Cantley (winner of a PGATOUR event that week)
