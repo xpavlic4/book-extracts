@@ -1,3 +1,9 @@
+# Warren Bottke eon Posture, Grip and Alignment
+* track your emotions when you had a successful tournament
+* track your spirutual, physical state
+* do swings in front of the mirror
+
+
 # Tips nr. 21
 * putt uphill
 * strike putt flush
