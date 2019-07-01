@@ -2,6 +2,8 @@
 * track your emotions when you had a successful tournament
 * track your spirutual, physical state
 * do swings in front of the mirror
+* grip pressure 3-4 on the scale 1-10
+
 
 
 # Tips nr. 21
