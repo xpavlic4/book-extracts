@@ -1,3 +1,11 @@
+# Ben Pellicani
+* when you are on the range, find a 20 yards gap and try how many drives you fit in. 70 % have the beste collegiate players
+* always have a standard (20 feet putt to 2 feet past max) you train against
+* two things a player must follow:
+  - first things First
+  - control the controllable
+
+# tips 22
 # Warren Bottke eon Posture, Grip and Alignment
 * track your emotions when you had a successful tournament
 * track your spirutual, physical state
