@@ -1,3 +1,7 @@
+# Gary Nicol
+* play golf on the range as you would be on the golf course. imagine you are you stay on the first tee and had to hit to the right side of the fairway with your 3w. once you step on the teebox you are already in the play-mode
+* play wrong golf - if you play for fun on the course you are not allowed to play the club you would normally play. Let's say green is 140 meters, you'd normally play 8i. You have to play 9i or 7i. This should teach you to be creative.
+
 # Ben Pellicani
 * when you are on the range, find a 20 yards gap and try how many drives you fit in. 70 % have the beste collegiate players
 * always have a standard (20 feet putt to 2 feet past max) you train against
