@@ -1,3 +1,6 @@
+# Tips from episode 23
+* your are 2 swings away from slump
+
 # David Ogrin
 * PRO: you have to listen to me what I am saying until you can beat me
 * if a girl shows up with tape on her wrist, do only chipping and putting
