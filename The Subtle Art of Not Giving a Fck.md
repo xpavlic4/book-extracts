@@ -39,7 +39,7 @@ Rule: if it's down to me being screwed up, or everybody else being screwed up, i
 
 At some point, most of us reach a place where we're afraid to fail, where we instinctively avoid failure and stick only to what is placed in front of us or only what we're already good at.
 
-If you are stuck on a problme, don't sit there and think about it; just start working on it.
+If you are stuck on a problem, don't sit there and think about it; just start working on it.
 
 Waiting for a motivation to take an action is wrong. It is an endless loop Inspiration -> Motivation -> Action -> Inspiratio -> Motivation ...
 
