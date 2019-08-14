@@ -1,4 +1,7 @@
 # 18Strong podcast
+# Master The Mental Side of Golf
+* there are two types of golfers, mastery golfer and ego golfer.
+
 # Jentry Barton
 * for juniors: let it be your sport, do not specialize so quickly
 * there is no one swing for all
