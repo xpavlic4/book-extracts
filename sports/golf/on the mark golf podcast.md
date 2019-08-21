@@ -1,3 +1,6 @@
+# Tips from episode 27
+* play your round in as multiple 3 holes tournamnets, eg. in Schoenfeld, first three holes in par
+
 # Tips from episode 23
 * your are 2 swings away from slump
 
