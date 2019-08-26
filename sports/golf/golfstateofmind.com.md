@@ -1,4 +1,8 @@
 # golfstateofmind.com
+## rory mcillroy 3 ps
+* have process goals instead of expectations
+* persistence - it is not done until you sank the putt on 18th
+
 ## how to make more putts
 * read the putt from multiple angles
 * determine your start line
