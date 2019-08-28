@@ -38,3 +38,22 @@ The size of hole is 4.25 (length of a dollar bill). Each revolution is 5.26 inch
 
 Track your putts, short, long, left, right, right-to-left break, 6 feet, uphill...
 When on the putting green, practice only with one ball. Just work on tempo.
+
+# Six exercises
+## Deliberate miss
+Try hit 5 balls out of the toe of the putter. After that try another 5 balls out of the heel. Now try to feel when you hit it out of the sweet spot.
+
+## Roll with it
+Roll one ball to the fringe with your hand. It should give you sense of the speed.
+
+## Bradshaw balls
+Take two balls. Putt first ball somewhere on the green. Pay attention how it reacts, break, speed etc. Now with the secod ball try to hit the first one so that it rested exactly where the first one lies.
+
+## Pace only
+Hit random putts from 10 to 30ft. Do not read the line of the putt, just feel the pace.
+
+## Ladder drill
+## One Arm Bandit drill
+Roll a putt from 3 feet with right hand only (righhander). Now try 5 and 6 feet.
+
+# Chapter 5: Green reading
