@@ -1,3 +1,6 @@
+# Tips from episode 28
+* Rory mcillroy hit 7/9 safe side of the green
+
 # Tips from episode 27
 * play your round in as multiple 3 holes tournamnets, eg. in Schoenfeld, first three holes in par
 
