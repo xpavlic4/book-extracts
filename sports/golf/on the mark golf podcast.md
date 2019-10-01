@@ -1,8 +1,13 @@
+# Tips from episode 30
+* the ball struck offset twist the face
+* start to measure the length of your stroke
+* have two tees 3 inches apart and putt inside it without touching those tees, later with 4 inches
+
 # Tips from episode 28
 * Rory mcillroy hit 7/9 safe side of the green
 
 # Tips from episode 27
-* play your round in as multiple 3 holes tournamnets, eg. in Schoenfeld, first three holes in par
+* play your round in as multiple 3 holes tournaments, eg. in Schoenfeld, first three holes in par
 
 # Tips from episode 23
 * your are 2 swings away from slump
