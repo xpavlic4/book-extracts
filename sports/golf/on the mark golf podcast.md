@@ -1,3 +1,7 @@
+# Andrew Getson
+* PGA Tour pros hit irons 80% swing speed, they swing driver 100%
+* PGA Tour pros never move lower body when they move
+
 # Tips from episode 30
 * the ball struck offset twist the face
 * start to measure the length of your stroke
