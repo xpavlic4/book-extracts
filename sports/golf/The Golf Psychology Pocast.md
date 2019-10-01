@@ -4,6 +4,7 @@
 
 # How to stay in the zone
 * do not judge, do not focus on the outcome
+* do not think ahead
 
 # How champions plan for every outcome
 * practice all possible shortgame shots so you have confidence on the teebox, you know no matter what happend you can play that shortgame shot. Otherwise it is in the back of your mind and you unconsciousnessly avoid it.
@@ -28,5 +29,5 @@ The only goal to set is number of greens and number of up/downs in the round.
 
 # Anxiety under Pressure
 Two possibilities
-* The payoff syndrom - I worked so hard on this
+* The payoff syndrome - I worked so hard on this
 * I do not want to fail in front of others
