@@ -1,3 +1,9 @@
+# Tips from episode 31
+* Joe Miller world long drive champion on youtube. He doesn't rotate much, but creates speed.
+* Cameron Champ setup: the ball forward in stance (gives you more time to accelerate the clubhead)
+* create a whip, arms are relaxed, relaxed shoulders
+
+
 # Andrew Getson
 * PGA Tour pros hit irons 80% swing speed, they swing driver 100%
 * PGA Tour pros never move lower body when they move
