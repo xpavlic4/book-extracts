@@ -1,3 +1,6 @@
+# Peter Croker
+* if you get a drill, do it very slowly
+
 # Tips from episode 33
 * even the best golfers like Justin Rose has a range, he shot 78 one day and 64 the next one
 * mental scorecard, one PRO said to himself, he has to just 2 shots in a round where he is not fully committed, but the rest of the shots (95 percent) he has to be fully committed to every shot he had
