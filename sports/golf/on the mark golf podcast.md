@@ -1,3 +1,6 @@
+# Tim Cusick
+* if you are in rough and the grass is growing towards you, try to hold the club open during the impact, because otherwise your club is going to be stuck in the grass and closed
+* use hybrid out of the rough because it glides better than iron
 # Tips from episode 31
 * Joe Miller world long drive champion on youtube. He doesn't rotate much, but creates speed.
 * Cameron Champ setup: the ball forward in stance (gives you more time to accelerate the clubhead)
