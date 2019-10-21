@@ -1,3 +1,9 @@
+# Tips from episode 33
+* even the best golfers like Justin Rose has a range, he shot 78 one day and 64 the next one
+* mental scorecard, one PRO said to himself, he has to just 2 shots in a round where he is not fully committed, but the rest of the shots (95 percent) he has to be fully committed to every shot he had
+* said two positive things after every shot, good attitude is genesis for a good golf
+* don't focus on your score
+
 # Tim Cusick
 * if you are in rough and the grass is growing towards you, try to hold the club open during the impact, because otherwise your club is going to be stuck in the grass and closed
 * use hybrid out of the rough because it glides better than iron
