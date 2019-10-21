@@ -7,6 +7,10 @@
 * said two positive things after every shot, good attitude is genesis for a good golf
 * don't focus on your score
 
+# Tips from episode 32
+* a good putt will miss on the high edge
+* if Kevin Na has any doubt he will not fire the putt
+
 # Tim Cusick
 * if you are in rough and the grass is growing towards you, try to hold the club open during the impact, because otherwise your club is going to be stuck in the grass and closed
 * use hybrid out of the rough because it glides better than iron
