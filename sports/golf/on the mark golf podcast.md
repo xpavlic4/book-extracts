@@ -14,7 +14,7 @@
 # Mike Jacobs
 * science means nothing until you make it useful
 * try following to illustrate the clubhead speed - half shot and during the impact try to move handle forward, next shot try to half shot again and try to stop the handle and swing more around the body. You should see double or triple swing speed in the second shot
-* concentrate on increasing your ball speed instead of clubhead speed, because the majority of amateur golfers do not have a skeleton of a jacked-up PGA Tour profesionals
+* concentrate on increasing your ball speed instead of clubhead speed, because the majority of amateur golfers do not have a skeleton of a jacked-up PGA Tour professionals
 
 # Tim Cusick
 * if you are in rough and the grass is growing towards you, try to hold the club open during the impact, because otherwise your club is going to be stuck in the grass and closed
