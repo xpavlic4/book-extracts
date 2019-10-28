@@ -1,3 +1,6 @@
+# Tips from episode 34
+* digging out of your dirt is the best way how to understand things, try things out, play one club round
+
 # Peter Croker
 * if you get a drill, do it very slowly
 
