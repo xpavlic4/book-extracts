@@ -1,3 +1,10 @@
+# Adam Young
+*  7 laws of good impact
+* ground contact - where you hit the ground, with irons the ball first and the ground after
+* drill, take an old club and draw a cross on concrete. than try to hit the cross on the concrete very lightly. the most of the golfers hit well before the cross
+* face contact
+* speed - drill: give a golfer a club and tell him it hast to make the loudest swiish, most of them understand that it is not about power and strength
+
 # Tips from episode 34
 * digging out of your dirt is the best way how to understand things, try things out, play one club round
 
