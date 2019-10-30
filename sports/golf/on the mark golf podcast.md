@@ -1,3 +1,6 @@
+# The optimal performance swing
+* indian woman teacher
+
 # Adam Young
 *  7 laws of good impact
 * ground contact - where you hit the ground, with irons the ball first and the ground after
