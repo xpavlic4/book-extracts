@@ -1,3 +1,7 @@
+# Tips from PGA TOUR 35
+* Rory McIlroy: The game of golf is such a fickle game. One week you have missed the cut and the next wee you win by 7 shots.
+* Tiger Woods: you can control self-talk, attitude.
+
 # The optimal performance swing
 * indian woman teacher
 
