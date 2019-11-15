@@ -41,6 +41,6 @@ At some point, most of us reach a place where we're afraid to fail, where we ins
 
 If you are stuck on a problem, don't sit there and think about it; just start working on it.
 
-Waiting for a motivation to take an action is wrong. It is an endless loop Inspiration -> Motivation -> Action -> Inspiratio -> Motivation ...
+Waiting for a motivation to take an action is wrong. It is an endless loop Inspiration -> Motivation -> Action -> Inspiration -> Motivation ...
 
 With simply doing something as your only metric how to measure the success - well, then even the failure pushes you forward.
