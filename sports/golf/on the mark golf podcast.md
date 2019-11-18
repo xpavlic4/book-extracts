@@ -1,3 +1,9 @@
+# Tips from PGA TOUR 36
+* playing from the divot:
+  - the ball in the middle of the stance
+  - play like a punch shot
+
+
 # Tips from PGA TOUR 35
 * Rory McIlroy: The game of golf is such a fickle game. One week you have missed the cut and the next wee you win by 7 shots.
 * Tiger Woods: you can control self-talk, attitude.
@@ -10,7 +16,7 @@
 * ground contact - where you hit the ground, with irons the ball first and the ground after
 * drill, take an old club and draw a cross on concrete. than try to hit the cross on the concrete very lightly. the most of the golfers hit well before the cross
 * face contact
-* speed - drill: give a golfer a club and tell him it hast to make the loudest swiish, most of them understand that it is not about power and strength
+* speed - drill: give a golfer a club and tell him it hast to make the loudest swoosh, most of them understand that it is not about power and strength
 
 # Tips from episode 34
 * digging out of your dirt is the best way how to understand things, try things out, play one club round
