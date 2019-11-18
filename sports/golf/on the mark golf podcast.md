@@ -1,3 +1,6 @@
+# Jamy Belcher on The Foundational Principles of Leadership and Being Your Best Self
+* ex "you" ces - excuses - the word YOU is in the middle, because it is all about you. 
+
 # Tips from PGA TOUR 36
 * playing from the divot:
   - the ball in the middle of the stance
