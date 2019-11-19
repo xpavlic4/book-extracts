@@ -1,3 +1,6 @@
+# NLU Podcast, Episode 260: Billy Andrade
+* pga tour used to have 6/6/6 pins, 6 difficult, 6 medium and 6 easy. nowadays it is 18 difficult pins in the first round
+
 # Brad Faxon
 
 # Zac Blair
