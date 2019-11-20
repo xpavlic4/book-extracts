@@ -1,5 +1,8 @@
+# Adam Schriber on Activating the Power Source in the Golf Swing
+* coach of Anthony Kim
+
 # Jamy Belcher on The Foundational Principles of Leadership and Being Your Best Self
-* ex "you" ces - excuses - the word YOU is in the middle, because it is all about you. 
+* ex "you" ces - excuses - the word YOU is in the middle, because it is all about you.
 
 # Tips from PGA TOUR 36
 * playing from the divot:
