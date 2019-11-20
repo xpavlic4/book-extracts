@@ -1,3 +1,6 @@
+# The Wedge Guy: Birdie holes and other myths
+* if your are 10+ hcp, your singular thought is to not make a double or higher
+
 # scratch from single digits
 * play as much as possible
 * when you play, be sure there is something on the line (money or tournament)
