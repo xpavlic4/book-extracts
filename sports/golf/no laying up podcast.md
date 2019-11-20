@@ -1,3 +1,8 @@
+# NLU Podcast, Episode 261: Brendon Todd
+* during your round there is a lot of waiting, do not beat yourself up, try to think about great shots you hit and shots you will hit in the future, do not think about bad shots
+* rhythm and timing is the most important thing in golf
+* the mindset has to be: play and try to birdie every hole
+
 # NLU Podcast, Episode 260: Billy Andrade
 * pga tour used to have 6/6/6 pins, 6 difficult, 6 medium and 6 easy. nowadays it is 18 difficult pins in the first round
 
