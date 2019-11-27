@@ -1,3 +1,8 @@
+# Turn Your Practice into Good Golf Scores with Devan Bonebrake
+
+# Tips from The PGA TOUR. Episode 37 - Pitch the Ball like Brendan Todd
+* shot nr.3 is the most important in golf
+
 # Adam Schriber on Activating the Power Source in the Golf Swing
 * coach of Anthony Kim
 
