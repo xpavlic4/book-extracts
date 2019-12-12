@@ -48,10 +48,10 @@ Walking with very optimistic mindset to be able to birdie every hole. Seeing eve
 * meditate until you have a clear mind
 * recall your last success, try to get a vivid picture
 * bind the feeling with some specific "anchor"
-    * verbal trigers  "commit", "smooth and powerful" 
+    * verbal trigers  "commit", "smooth and powerful"
     * auditory: hummung, golf glove Velcro snap
     * kinesthetic: Tiger blinks, Fowler taps the cap
-    
+
 ## Competitive practice
 ### Managing the time in-between shots
 * try staying in the present
@@ -102,4 +102,19 @@ Your best swings are going to be when your movement is (mostly) subconsciously c
 * first person visualizing is better for event that has not yet occured
 * third person (as watching a TV) is better for reviewing rounds from the past
 
+# Mental Game Warm-up
+* breathing (5 minutes)
+* personal highligh reel (2 minutes), remind yourself 3 top perfomances in golf
+* visualize success (2 minutes)
+* your process goals (30 secs)
+* attitude of gratitude (30 secs)
 
+# Strategy
+* risk vs conservative holes
+* good miss
+* where is fat part of the green
+
+# Eat and drink
+* good breakfast is omelette with vegetables or sandwich with fruit
+* avoid beer (high sugar will make you sluggish)
+* bananas, nuts, health bars
