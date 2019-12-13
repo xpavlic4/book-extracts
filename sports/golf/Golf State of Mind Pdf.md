@@ -118,3 +118,21 @@ Your best swings are going to be when your movement is (mostly) subconsciously c
 * good breakfast is omelette with vegetables or sandwich with fruit
 * avoid beer (high sugar will make you sluggish)
 * bananas, nuts, health bars
+
+# Mental Game Scorecard
+* pre-shot routine (1 sloppy, 10 perfect on every shot)
+* course strategy (1 no strategy, 10 thought about good misses)
+* visualization (1 non-existend, 10 got clear picture of shape and trajectory)
+* rehearsing shots (1 all mechanics, 10 felt every shot)
+* alignment ( 1 i don't know, 10 spon on)
+* bad shot acceptance (1 took them with me, 10 moved on quickly)
+* stayed in the present (1 distracted by past and future,10 zen-liek awareness)
+* talk to myself (1 beat myself up, 10 only encouragement)
+* pressure and challenges handling ( 1 choked, 10 pressure got me rired up to play well)
+* giving up when  playing poorly ( 1 lost interest, 10 kept it going)
+* analyzed my swing when hitting bad shots (1 gave myself a playing lesson, 10 trusted my swing)
+* think about my score (1 very often, 10 not at all)
+* warm-up (1 no warmup, 10 felt very prepared)
+* food and drink consumption (1 beer and hamburgers, 10 healthy snacks and water)
+* watching others play (1 play ego golf, 10 played my own game)
+* was I a fun playuing partner today? (1 club slummer, 10 considerate and engaging)
