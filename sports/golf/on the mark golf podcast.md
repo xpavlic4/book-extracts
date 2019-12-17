@@ -1,3 +1,6 @@
+# Chris Green Addresses Important Launch Monitor Data and Matchups
+* 1 minute on a clock is 6 degrees, a minor change with clubface is about 2-3 degrees
+
 # Turn Your Practice into Good Golf Scores with Devan Bonebrake
 
 # Tips from The PGA TOUR. Episode 37 - Pitch the Ball like Brendan Todd
