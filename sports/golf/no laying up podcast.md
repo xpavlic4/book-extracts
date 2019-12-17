@@ -1,3 +1,6 @@
+# NLU Presidents cup Recap
+* great course = small gap between a birdie and a bogey
+
 # NLU Podcast, Episode 263: Harry Higgs
 * a pro on pgatour has 8-11 birdie opportunities during a round, 3 from par5
 
