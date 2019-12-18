@@ -1,3 +1,7 @@
+# Jeff Martin Helps You to Think about Golf with a Productive Mindset
+
+# Tips from The PGA Tour - Episode 39. Ball-striking Lessons from Henrik Stenson and Tiger Woods
+
 # Chris Green Addresses Important Launch Monitor Data and Matchups
 * 1 minute on a clock is 6 degrees, a minor change with clubface is about 2-3 degrees
 
