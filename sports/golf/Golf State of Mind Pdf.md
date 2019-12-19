@@ -87,7 +87,7 @@ Walking with very optimistic mindset to be able to birdie every hole. Seeing eve
 ## Course Strategy
 * compile club distances
 * know my shot pattern
-* farway hard/soft
+* fairway hard/soft
 * uphill putt after approach
 
 ## Types of Pre Shot Routine "Feels"
