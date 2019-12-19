@@ -1,3 +1,5 @@
+# Mike Napoleon from Superspeed Golf with Insights on Improving Swing Speed
+
 # Jeff Martin Helps You to Think about Golf with a Productive Mindset
 
 # Tips from The PGA Tour - Episode 39. Ball-striking Lessons from Henrik Stenson and Tiger Woods
