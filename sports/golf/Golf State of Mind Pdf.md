@@ -21,7 +21,49 @@ Stages of a round:
 * Post-round
 
 ## Process thinking vs Outcome thinking
-Focus on "the process" rather than on the result.
+Focus on "the process" rather than on the result. Your process keep you in the present moment. Thinking about the past means thinking about mistakes. Trying to predict the future leads to "performance anxiety".
+
+Exercise: Write all the things that are not within your control during a round and things that are.
+
+Thinks you have to adapt:
+* changing weather
+* other players
+* bad luck
+* the golf course (grass, different shots)
+* nerves
+* focus
+* tension (breathe and relax)
+* tempo (under pressure you increase your tempo)
+
+# Module 3: How to deal with pressure and play fearless golf
+
+Pressure comes when you feel you have to produce a certain result. Fear is negative emotion caused by uncertainty. During performance you have to focus on process.
+
+Exercise: What causes you to feel under pressure.
+
+Pressure situations |
+--- |
+Someone is watching me |
+I have to score some specific score |
+
+Be aware of yourself:
+* emotions
+* body language
+* self-talks
+* being in the present/future
+* tension in your body
+* cadence
+
+Exercise:
+List things when you play bad/good.
+
+Playing bad | Playing good
+:--- | ---:
+I do not care anymore | Excited about next birdie opportunities
+I do not see putts sinking in my pre-shot routine | I see the putt in the hole before even hit it
+I try extra power with my driver (whipping) | I play my driver calmly
+
+
 
 ## Breathing inhale vs. exhale ratio
 * 6 seconds to inhale
@@ -44,10 +86,12 @@ uncomfortable situation
 *  “high-power” postures (standing up, back straight, shoulders back) generates more Testosterone
 * facial expressions - smile as much as possible
 
-### Exercise
+Exercise:
 Describe your best competitive mindset.
 
-Walking with very optimistic mindset to be able to birdie every hole. Seeing every putt goes into the hole before hitting it.
+My Competitive mindset |
+--- |
+Walking with very optimistic mindset to be able to birdie every hole. Seeing every putt goes into the hole before hitting it. |
 
 ## Re-framing Negative Self-talk
 * something went wrong in the future vs. it possible the event will be positive
@@ -84,7 +128,7 @@ Walking with very optimistic mindset to be able to birdie every hole. Seeing eve
 
 ### Nutrition and hydration
 * you burn 1800 calories during a round when carrying your bag
-* sleep at leat 7 hours a day
+* sleep at least 7 hours a day
 
 ### Being Nervous
 * something you should welcome
@@ -123,22 +167,32 @@ Your best swings are going to be when your movement is (mostly) subconsciously c
 * first person visualizing is better for event that has not yet occurred
 * third person (as watching a TV) is better for reviewing rounds from the past
 
-# Mental Game Warm-up
+## Mental Game Warm-up
 * breathing (5 minutes)
 * personal highlight reel (2 minutes), remind yourself 3 top performances in golf
 * visualize success (2 minutes)
 * your process goals (30 secs)
 * attitude of gratitude (30 secs)
 
-# Strategy
+## Strategy
 * risk vs conservative holes
 * good miss
 * where is fat part of the green
 
-# Eat and drink
+## Eat and drink
 * good breakfast is omelet with vegetables or sandwich with fruit
 * avoid beer (high sugar will make you sluggish)
 * bananas, nuts, health bars
+
+## Reacting on a bad Shots
+Choose how you reacting
+* every bad shot has something positive
+* count to 10 to give you time to response to a bad shot
+* response to a bad shot after you made 10 steps
+* try to laugh it off
+* have a physical action that remembers you to forget the shot
+* play each shot as it's the only shot you are ever hitting (there are no consequences to it)
+
 
 # Mental Game Scorecard
 * pre-shot routine (1 sloppy, 10 perfect on every shot)
