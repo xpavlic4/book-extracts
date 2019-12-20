@@ -1,6 +1,27 @@
-# Dealing with pressure
-## The midset
-* growth vs. fixed mindset
+# Module 1
+The Champion Golfer Profile:
+* physical skills like fitness, strength and conditioning, good Nutrition
+* technical skills like swing and putting stroke mechanics
+* equipment
+* mental skills like how you deal with pressure and manage emotions
+
+# Module 2: Fundamental Mental Game Concepts
+Motivation can be either internal or external. Internal means motivation in the skill itself. External means you get something as a reward outside of the skill (e.g. money or recognition).
+
+Exercise: Think about where you want to go and what is the purpose of it. Define long-term goal and list 5 reasons why you want to do it.
+
+The mindset is either growth or fixed mindset. Growth means improvements is paved by failures. Fixed means your ability is pre-defined.
+
+Stages of a round:
+* Pre-round
+* Pre-shot
+* During the shot
+* Post-shot
+* In between shots
+* Post-round
+
+## Process thinking vs Outcome thinking
+Focus on "the process" rather than on the result.
 
 ## Breathing inhale vs. exhale ratio
 * 6 seconds to inhale
@@ -19,8 +40,8 @@ uncomfortable situation
 * if you feel nervous deliberately slow down your walk, routine and swing
 
 ## Body language
-* when you feel confident you have more Testosteron
-*  “high-power” postures (standing up, back straight, shoulders back) generates more Testosteron
+* when you feel confident you have more Testosterone
+*  “high-power” postures (standing up, back straight, shoulders back) generates more Testosterone
 * facial expressions - smile as much as possible
 
 ### Exercise
@@ -48,8 +69,8 @@ Walking with very optimistic mindset to be able to birdie every hole. Seeing eve
 * meditate until you have a clear mind
 * recall your last success, try to get a vivid picture
 * bind the feeling with some specific "anchor"
-    * verbal trigers  "commit", "smooth and powerful"
-    * auditory: hummung, golf glove Velcro snap
+    * verbal triggers  "commit", "smooth and powerful"
+    * auditory: humming, golf glove Velcro snap
     * kinesthetic: Tiger blinks, Fowler taps the cap
 
 ## Competitive practice
@@ -99,12 +120,12 @@ Walking with very optimistic mindset to be able to birdie every hole. Seeing eve
 Your best swings are going to be when your movement is (mostly) subconsciously controlled.
 
 ## Ways to visualize a shot associated vs disassociated
-* first person visualizing is better for event that has not yet occured
+* first person visualizing is better for event that has not yet occurred
 * third person (as watching a TV) is better for reviewing rounds from the past
 
 # Mental Game Warm-up
 * breathing (5 minutes)
-* personal highligh reel (2 minutes), remind yourself 3 top perfomances in golf
+* personal highlight reel (2 minutes), remind yourself 3 top performances in golf
 * visualize success (2 minutes)
 * your process goals (30 secs)
 * attitude of gratitude (30 secs)
@@ -115,24 +136,24 @@ Your best swings are going to be when your movement is (mostly) subconsciously c
 * where is fat part of the green
 
 # Eat and drink
-* good breakfast is omelette with vegetables or sandwich with fruit
+* good breakfast is omelet with vegetables or sandwich with fruit
 * avoid beer (high sugar will make you sluggish)
 * bananas, nuts, health bars
 
 # Mental Game Scorecard
 * pre-shot routine (1 sloppy, 10 perfect on every shot)
 * course strategy (1 no strategy, 10 thought about good misses)
-* visualization (1 non-existend, 10 got clear picture of shape and trajectory)
+* visualization (1 non-existed, 10 got clear picture of shape and trajectory)
 * rehearsing shots (1 all mechanics, 10 felt every shot)
-* alignment ( 1 i don't know, 10 spon on)
+* alignment ( 1 I don't know, 10 spot on)
 * bad shot acceptance (1 took them with me, 10 moved on quickly)
-* stayed in the present (1 distracted by past and future,10 zen-liek awareness)
+* stayed in the present (1 distracted by past and future,10 zen-like awareness)
 * talk to myself (1 beat myself up, 10 only encouragement)
-* pressure and challenges handling ( 1 choked, 10 pressure got me rired up to play well)
+* pressure and challenges handling ( 1 choked, 10 pressure got me fired up to play well)
 * giving up when  playing poorly ( 1 lost interest, 10 kept it going)
 * analyzed my swing when hitting bad shots (1 gave myself a playing lesson, 10 trusted my swing)
 * think about my score (1 very often, 10 not at all)
 * warm-up (1 no warmup, 10 felt very prepared)
 * food and drink consumption (1 beer and hamburgers, 10 healthy snacks and water)
 * watching others play (1 play ego golf, 10 played my own game)
-* was I a fun playuing partner today? (1 club slummer, 10 considerate and engaging)
+* was I a fun playing partner today? (1 club slummer, 10 considerate and engaging)
