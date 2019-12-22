@@ -193,8 +193,36 @@ Choose how you reacting
 * have a physical action that remembers you to forget the shot
 * play each shot as it's the only shot you are ever hitting (there are no consequences to it)
 
+# Module 5: Pre-round preparation
 
-# Mental Game Scorecard
+Mental rehearsal:
+* preparation, feeling prepared gives you more confidence
+
+1. find a quiet place
+2. get into meditate state
+3. focus on the upcoming round
+4. try to visualize as many shots as you can
+5. see it with as many senses as possible
+6. feel the pre-shot routine
+7. imagine your body language
+8. imagine hitting the shot
+9. feel the swing
+10. look up and see the ball flying
+11. go through the process on every shot and putt
+
+## Setting goals
+* has to be process goals
+* has to be within your control
+
+Examples:
+* strong visualization and clear intention
+* feeling centered and balanced when pulling the trigger
+* deep breath before starting the routine
+* choosing to respond well to poorly hit shots
+* good tempo
+* quietening your mind
+
+## Mental Game Scorecard
 * pre-shot routine (1 sloppy, 10 perfect on every shot)
 * course strategy (1 no strategy, 10 thought about good misses)
 * visualization (1 non-existed, 10 got clear picture of shape and trajectory)
@@ -211,3 +239,44 @@ Choose how you reacting
 * food and drink consumption (1 beer and hamburgers, 10 healthy snacks and water)
 * watching others play (1 play ego golf, 10 played my own game)
 * was I a fun playing partner today? (1 club slummer, 10 considerate and engaging)
+
+## Mental warmup
+* breathing 5 mins
+* my personal highlight reel (2 mins), go through your 3 best rounds
+* visualize success (2 mins)
+* your process goals (30 secs)
+* attitude of gratitude (30 secs)
+
+## Putting warmup
+* check eye position, stance, ball position
+* putt to the fringe, 5 balls from 10, 15, 20, 25 30 feet
+* 6 10-15 feet putts
+* performance drills
+
+## Shortgame warmup
+* hit 3 balls from 4-5 spots around the green
+* longer bunker shots
+
+## Driving range warm-up
+* no more than 25 balls
+* sw, 8i, 4i, 3w, driver, 8i and wedges
+
+# Module 6: Post-round evaluation
+* use performance journal
+* always positive
+* 3 things that were good
+* 1 thing you could have better + steps how to be better next time
+
+Stats to keep track of:
+* FiRs
+* missed Fairways left/right
+* GIRs
+* Scrambling
+* average putts per hole
+* average on par5s
+* number of bogies from fairway with <8i
+* number of doubles
+* total distance of approach shots that hit the green
+* total distance of putts holed
+
+# Module 7: Ongoing Improvement
