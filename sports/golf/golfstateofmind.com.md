@@ -1,4 +1,6 @@
 # golfstateofmind.com
+## 10-ways-improve-game-winter-months-email
+
 ## how to free your mind and play your best golf
 * in between shots, direct your focus of attention to breathing and what you see and feel
 * practice refocus: ask yourself "I wonder what my next though will be" and notice how long it is before a thought comes in. Try extend that time to several seconds.
