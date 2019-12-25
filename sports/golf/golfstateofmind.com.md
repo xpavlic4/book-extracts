@@ -1,5 +1,24 @@
 # golfstateofmind.com
+# HOW TO AVOID NEGATIVE THINKING IN GOLF
+* thoughts come and go and we cannot control it
+* thoughts become emotions when you give them power
+* make gratitude a daily habit
+
+
 ## 10-ways-improve-game-winter-months-email
+* evaluate Stats
+* set goals for next season
+  - set performance goals (stats for specific areas of the game you need to improve to get you there)
+  -  process goals – what specifically you are going to do to achieve your performance goals
+* start a specific golf fitness regime
+* improve your concentration
+  - headspace or calm.com
+* practice mindfulness
+* educate yourself
+  - Earn Your Edge Podcast   
+* sleep well
+* practice more effectively
+* start a performance journal on coachnow.com
 
 ## how to free your mind and play your best golf
 * in between shots, direct your focus of attention to breathing and what you see and feel
