@@ -1,4 +1,11 @@
 # golfstateofmind.com
+# How to achieve your goals in 2020
+* extrinsic and intrinsic motivation
+  - extrinsic means money, respect, trophies
+  - intrinsic means following purpose
+* performance steps - do not set them, those are predictions of the future and you cannot control future
+* process goals - set actionable and increase them
+
 # HOW TO AVOID NEGATIVE THINKING IN GOLF
 * thoughts come and go and we cannot control it
 * thoughts become emotions when you give them power
