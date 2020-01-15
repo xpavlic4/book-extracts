@@ -1,3 +1,11 @@
+
+# NLU Podcast, Episode 270: Cameron McCormick and Corey Lundberg
+* stats are lying (ShotLink), doesn't show how player felt over the shot
+
+# PGA Professional Rob Labritz on Winter and Summer Practice for Good Golf Year-round
+* small swings with big clubs (8i 20 meters, 40 meters)
+* hands parallel swings in front of the mirror (brain learn this way)
+* have one club hit to different targets or many clubs to the same target - that's winter work
 # Mike Napoleon from Superspeed Golf with Insights on Improving Swing Speed
 
 # Jeff Martin Helps You to Think about Golf with a Productive Mindset
