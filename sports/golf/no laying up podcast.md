@@ -1,3 +1,6 @@
+# NLU Podcast, Episode 270: Cameron McCormick and Corey Lundberg
+* stats are lying (ShotLink), doesn't show how player felt over the shot
+
 # NLU Presidents cup Recap
 * great course = small gap between a birdie and a bogey
 

@@ -1,6 +1,14 @@
+# Karl Morris on Improved Performance and the Lost Art of Playing Golf
+* every shot should be taught on the golf course
+* what image is going through your mind when you step in, work on your imagination
+* 9-shot drill - do you feel comfortable hitting them?
+* try to walk the course backwards and you see whole different course, start at the 18th green and walk to the tee box etc.
+* differential practice - start with something and every other shot you shot differently (open stance)
 
-# NLU Podcast, Episode 270: Cameron McCormick and Corey Lundberg
-* stats are lying (ShotLink), doesn't show how player felt over the shot
+# Tips from The PGA TOUR. Episode 41 - Improve Accuracy off the Tee and on Approach Shots a la Justin Thomas
+* grip down your driver to increase your accuracy
+* if it's windy swing it easy
+* do not aim outside of the green if it's windy (margins of the target)
 
 # PGA Professional Rob Labritz on Winter and Summer Practice for Good Golf Year-round
 * small swings with big clubs (8i 20 meters, 40 meters)
