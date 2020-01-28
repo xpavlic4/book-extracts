@@ -1,3 +1,7 @@
+# Jamie Mulligan | Ep/052
+* keep better in the process
+
+
 # Todd Herman | Ep/054
 * people care what others think about them
 * you are not one identity, you are multiple
