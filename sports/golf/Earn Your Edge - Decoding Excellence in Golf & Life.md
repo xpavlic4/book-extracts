@@ -1,6 +1,9 @@
+# Phil Kenyon | Ep/041
+* simplest drill to improve your start line is gate
+* if you try to consciously change something you need a feedback
+* one ball and never hit the same putt twice
 # Jamie Mulligan | Ep/052
 * keep better in following a process
-
 
 # Todd Herman | Ep/054
 * people care what others think about them
