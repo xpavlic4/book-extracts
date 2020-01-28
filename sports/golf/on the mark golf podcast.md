@@ -1,3 +1,8 @@
+# Tips from The PGA TOUR. Episode 42 - Tips on Bunker Play and Commitment to the Target
+* bunker shot form a plugged lie: hinge and unhinge your wrists, you create high velocity
+* for more advanced players: keep your chin high and focus on the front side of the golf ball
+* hitting through the window, imagine the window on the 2nd or 3rd floor and try to hit through it
+
 # Karl Morris on Improved Performance and the Lost Art of Playing Golf
 * every shot should be taught on the golf course
 * what image is going through your mind when you step in, work on your imagination
