@@ -1,5 +1,5 @@
 # Jamie Mulligan | Ep/052
-* keep better in the process
+* keep better in following a process
 
 
 # Todd Herman | Ep/054
