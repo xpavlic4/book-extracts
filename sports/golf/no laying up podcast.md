@@ -1,3 +1,8 @@
+# NLU Podcast, Episode 276: Brad Faxon, Part II
+* hitting putts with something else than putter, e.g. wedge
+* you gain control from giving up control
+* try to imitate various players with various putting styles
+
 # NLU Podcast, Episode 270: Cameron McCormick and Corey Lundberg
 * stats are lying (ShotLink), doesn't show how player felt over the shot
 
