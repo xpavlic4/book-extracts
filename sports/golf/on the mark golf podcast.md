@@ -1,3 +1,17 @@
+# Tips from The PGA TOUR. Episode 43 - Rory McIlroy's Insights on Feel vs Data
+* dont't try to hit numbers on monitor, use more feel
+* try extremes, if you hit heel try to hit toe
+
+# Marcus Potter Helps You to Improve Your Putting
+* set your putter-face first and then set your feet
+* ball position between your left cheek and left ear
+* once your eyes get back to the ball you shouldn't spend much time thinking about hitting and pull the trigger
+* grip pressure: keep consistent pressure through the stroke
+* drill: take it back, pause for 4 seconds
+* mark a dot under the ball and concentrate on it once the ball is 2-3 feet away
+* drill Tiger did: 5 feet through a gate
+* drill: 5 tees around the hole from 3 feet  and make 25 putts switching after every putt, after that make 20 in the row from 5 feet
+
 # Tips from The PGA TOUR. Episode 42 - Tips on Bunker Play and Commitment to the Target
 * bunker shot form a plugged lie: hinge and unhinge your wrists, you create high velocity
 * for more advanced players: keep your chin high and focus on the front side of the golf ball
