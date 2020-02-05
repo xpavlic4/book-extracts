@@ -1,4 +1,15 @@
 # golfstateofmind.com
+# HOW TO HANDLE PRESSURE IN GOLF
+* change perspective and lower expectations, think your round as just another round of golf, no "big tournament" thoughts
+* be more self aware, winners are able to shape their behaviours under pressure
+* learn how to control your physiology, feel your muscles are tight, heart is beating faster and act accordingly
+* change your thinking patterns, you are the hero
+* stay more in the present, think about what needs to be done right now, very simple
+* slow down, walk, swing
+* notice your body language, instead of head drop choose to be dominant and have powerful posture
+* notice self-talk, avoid any negativity
+* practice with pressure
+
 # How to achieve your goals in 2020
 * extrinsic and intrinsic motivation
   - extrinsic means money, respect, trophies
