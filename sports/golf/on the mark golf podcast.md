@@ -1,3 +1,9 @@
+# Monte Scheinblum Reveals How to Easily Gain Power Off the Tee
+* imagine staying on a clock, where 12 oçlock is facing target, high hcp players starts to move the club to 5 oçlock (casting), whereas good single hcp players try to move towards 7 or 8 oclock
+* hip speed is higher on LPGA tour than PGA Tour, PGATour has 20 mph higher clubhead speed
+* you have to be patient and apply the speed later
+* rebeliongolf.com
+
 # Tips from The PGA TOUR. Episode 43 - Rory McIlroy's Insights on Feel vs Data
 * dont't try to hit numbers on monitor, use more feel
 * try extremes, if you hit heel try to hit toe
