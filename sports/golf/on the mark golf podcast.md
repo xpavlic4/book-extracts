@@ -1,3 +1,7 @@
+# Understand Your Body and Understand Your Swing with Dave Phillips (TPI)
+* all good players are almost identical at the impact
+* mytpi.com, you can locate an instructor based on area
+
 # Monte Scheinblum Reveals How to Easily Gain Power Off the Tee
 * imagine staying on a clock, where 12 oçlock is facing target, high hcp players starts to move the club to 5 oçlock (casting), whereas good single hcp players try to move towards 7 or 8 oclock
 * hip speed is higher on LPGA tour than PGA Tour, PGATour has 20 mph higher clubhead speed
