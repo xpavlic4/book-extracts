@@ -1,3 +1,5 @@
+# Learn about Separation Values and How to Take Advantage of them with "Lowest Score Wins"
+* never try to force a birdie, you have to remain disciplined 
 # Understand Your Body and Understand Your Swing with Dave Phillips (TPI)
 * all good players are almost identical at the impact
 * mytpi.com, you can locate an instructor based on area

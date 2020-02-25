@@ -1,3 +1,6 @@
+# Fearless Performance w/ Casey Stoner | Ep/057
+* he was beaten because he wasn't under pressure
+
 # Phil Kenyon | Ep/041
 * simplest drill to improve your start line is gate
 * if you try to consciously change something you need a feedback
