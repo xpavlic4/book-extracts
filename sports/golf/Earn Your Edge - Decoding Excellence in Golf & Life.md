@@ -1,3 +1,9 @@
+# Short Game Mastery With James Sieckmann | Ep/058
+* the most important in golf is 5 seconds after a bad shot
+* if you make a mistake, replay it positively
+* player has to be accountable, if something is given to him by their coach, he is responsible to do it
+* the best learning is the self-learning
+
 # Fearless Performance w/ Casey Stoner | Ep/057
 * he was beaten because he wasn't under pressure
 
