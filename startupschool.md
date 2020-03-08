@@ -22,7 +22,7 @@
  * keep it casual
  * keep it short (10-15 mins)
  * take phone number
- * discard compliments 
+ * discard compliments
 
 Prototype stage is about choosing the first customers.
 * how much does this problem cost them (money, energy)
@@ -34,3 +34,6 @@ Prototype stage is about choosing the first customers.
 |McDonalds | x  |           |   |
 |Fancy rest |   |           |    |
 |Google Cafe |  x|           |    |
+
+# How to Launch (Again and Again)
+* silent launch
