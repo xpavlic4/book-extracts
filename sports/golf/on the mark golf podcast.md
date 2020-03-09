@@ -1,3 +1,10 @@
+# Stuart Morgan on Improving Performance and Play at an Elite Level
+* austrian teacher, performance coach
+* juniors spend too much time on the range
+* some people prefer calling performance coach, some people prefer write after a tournament
+* stop with the negative self-talk
+* identify the environment when hitting bad shot (ball downhill, OOB on the left etc.)
+
 # Mike Granato (Athletic Motion Golf) on The 5 Biggest Misconceptions in the Golf Swing
 
 
