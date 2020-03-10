@@ -1,3 +1,7 @@
+# David Poulton Analyzes the Golf Swings of the Legends
+* people want results too fast
+* lag is dangerous place to go for amateur players when improve
+
 # Stuart Morgan on Improving Performance and Play at an Elite Level
 * austrian teacher, performance coach
 * juniors spend too much time on the range
@@ -364,7 +368,9 @@ your left feet should flair out so that you can rotate better.
 * you play one shot at the time, stay in the present
 * do not hit a shot if you are not ready or in doubt
 
-# Oliver Morton
+# Oliver Morton with Tips and Practice Drills to Improve your On-course Performance
+* 50 balls practice (limit practice session time)
+
 
 # 20190114 Pro Golf synopsis
 * putting is 2nd most importing part of the game
