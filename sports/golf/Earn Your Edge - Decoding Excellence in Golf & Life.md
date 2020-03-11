@@ -1,3 +1,13 @@
+# Cameron McCormick | Ep/050
+* you have to stand out in order to shine
+
+# Kevin Chappell | Ep/059
+* he wasn't good enough to play on the national level when he was 17 years old
+* learn to win, learn to shoot the lowest score you can
+* he does 5 things he is grateful for every day
+* "first you get courage than confidence"
+* enjoy adversity, enjoy how lucky you are to have to chance to play the game you love
+
 # Short Game Mastery With James Sieckmann | Ep/058
 * the most important in golf is 5 seconds after a bad shot
 * if you make a mistake, replay it positively
