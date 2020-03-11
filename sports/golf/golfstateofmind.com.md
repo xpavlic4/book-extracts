@@ -1,4 +1,5 @@
 # golfstateofmind.com
+# 
 # HOW TO HANDLE PRESSURE IN GOLF
 * change perspective and lower expectations, think your round as just another round of golf, no "big tournament" thoughts
 * be more self aware, winners are able to shape their behaviours under pressure
