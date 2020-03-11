@@ -1,3 +1,9 @@
+# NLU Podcast, Episode 288: Collin Morikawa
+* got Tour card in 7 starts
+* rarely practice after a round
+* Brooks at Travelers: I went from mindset "make cuts" to "win tournaments"
+
+# NLU Podcast, Episode 286: Cam Smith
 # NLU Podcast, Episode 285: Honda Classic Recap
 
 # NLU Podcast, Episode 277: Waste Management Recap
