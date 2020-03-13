@@ -52,3 +52,5 @@ Prototype stage is about choosing the first customers.
 
 # How to Launch (Again and Again)
 * silent launch
+* silent launch (without any landing page)
+* landing page with action
