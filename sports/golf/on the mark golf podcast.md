@@ -1,9 +1,17 @@
+# Frank Nobilo Shares His Opinions on Golf and the Development of the Game
+* if you are not learning from your parents something is wrong
+* mindset "I always putt better when putt for a birdie"
+* Tiger Woods - he keep looking forward
+
+# Max Homa with Lessons He has Learned in Professional Golf
+* you need to have an identity in golf, e.g. Iam a good iron players
+
 # David Poulton Analyzes the Golf Swings of the Legends
 * people want results too fast
 * lag is dangerous place to go for amateur players when improve
 
 # Stuart Morgan on Improving Performance and Play at an Elite Level
-* austrian teacher, performance coach
+* Austrian teacher, performance coach
 * juniors spend too much time on the range
 * some people prefer calling performance coach, some people prefer write after a tournament
 * stop with the negative self-talk
