@@ -1,3 +1,22 @@
+# Scott Fawcett (DECADE) on Better Decision-Making and Course Management
+* aggressive swing at conservative targets
+* every bad shot means indecision
+* the most important thing when holding a sand wedge is to avoid bogey, not to score a birdie
+* 4.6 average on par5 is PGA Tour
+* 5 things Tiger invented:
+  * no bogeys on par5
+  * no double bogeys
+  * no 3-putts
+  * no blow easy saves
+  * no bogeys with 9 iron or less
+* you can have 6 those things in a 4-day tournament and still wins
+* average winner on the PGA Tour has 6.4 of those things in an event
+* only two situation where you should have a birdie mindset:
+  * 2nd shot on par5
+  * tee-shot on drivable par4
+* accept the shot pattern no matter what it is
+
+
 # Frank Nobilo Shares His Opinions on Golf and the Development of the Game
 * if you are not learning from your parents something is wrong
 * mindset "I always putt better when putt for a birdie"
