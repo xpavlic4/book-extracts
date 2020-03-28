@@ -1,3 +1,8 @@
+# Robert Damron Talks Golf, Golf Swing Technique, and Lessons from Arnold Palmer
+* you are never gonna be too good with distance wedges
+* if you have a tough driving hole, the worst thing is swing harder and steer it (pick little target instead)
+* Justin Thomas said: I want to beat those guys so much they want to take off
+
 # Scott Fawcett (DECADE) on Better Decision-Making and Course Management
 * aggressive swing at conservative targets
 * every bad shot means indecision
