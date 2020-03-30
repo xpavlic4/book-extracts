@@ -1,4 +1,8 @@
 
+# Pull bias
+* players are way too close
+* players have head or body open 
+
 # Push bias by Phil Kenyon
 ## Push/Pull bias test
  * 10 feet putt, putt two balls 14 inches (36 cm) from the ball, 55 mm
@@ -22,6 +26,9 @@
 
 ## Torso motion
 * keep your head nice and steady when doing the stroke
+
+## Wrist mechanics
+* stick tee peg
 
 # Putting fundamentals by Phil Kenyon
 ## Introduction
