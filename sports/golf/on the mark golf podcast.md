@@ -1,3 +1,8 @@
+# Collin Morikawa On Self-Discovery and Improving Your Iron-Game
+* different term: expectation vs. goals
+* his go-to iron is 8 iron
+* check the basics
+
 # Ryan Armour Shares His Keys to Accurate Ball-Striking
 * you have to start  hitting in the middle of the green as a kid and learning hitting to the side
 * never aim at the trouble
