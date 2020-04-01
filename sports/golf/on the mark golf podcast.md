@@ -1,3 +1,20 @@
+# Collin Morikawa On Self-Discovery and Improving Your Iron-Game
+* different term: expectation vs. goals
+* his go-to iron is 8 iron
+* check the basics
+
+# Ryan Armour Shares His Keys to Accurate Ball-Striking
+* you have to start  hitting in the middle of the green as a kid and learning hitting to the side
+* never aim at the trouble
+* you cannot birdie every hole, par is a good score
+* if you have 6-8 wedges, he tries to birdie 4 holes
+* never try to hit so that you are out of balance, that helps you hit the sweetspot
+
+# Webb Simpson on Getting the Most Out of Your Game
+* left side of the hole is 90% not time in play
+* if you feel tired on the range, stop immediately
+* all shots are equal in terms of importance (help decrease the meaning of the moment), always approach same way
+
 # Robert Damron Talks Golf, Golf Swing Technique, and Lessons from Arnold Palmer
 * you are never gonna be too good with distance wedges
 * if you have a tough driving hole, the worst thing is swing harder and steer it (pick little target instead)

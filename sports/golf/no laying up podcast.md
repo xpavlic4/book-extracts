@@ -1,3 +1,6 @@
+# NLU Podcast, Episode 294: Justin Thomas
+* 98% of time I don't hit full wedge
+
 # NLU Podcast, Episode 288: Collin Morikawa
 * got Tour card in 7 starts
 * rarely practice after a round
