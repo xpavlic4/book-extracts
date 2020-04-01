@@ -1,11 +1,27 @@
+# Common myths and Misconceptions in putting
+* myth: you have to accelerate, drill: position two balls and try to have backswing (1 unit of time) and forward-swing (from back all the way to forward) also in 1 unit of time
+* myth: low and slow
+* myth: putter straight back and through
+* use face-balanced putter if you miss left (you have to try it)
+* myth: green speed vs putter weight, it can influence, but you still have to try it
+* many golfers feel comfortable lifting toe
+* drill to train your speed: 3 fake holes along the line 1 foot apart all on line, try to roll 1st putt to land on the last hole, 2nd putt on the second and the 3rd one to land dead on the 1st hole
+* speed control is about adaptability, not about hitting the same distance again and again
+* many good players are not parallel aligned, are more open
 
-# Pull bias
+# Pull bias (miss left)
 * players are way too close
-* players have head or body open 
+* players have head or body open
+* sometimes looking at the part of the putter gives you perception of being squared
+* the stroke works on an arc, not straight back and straight forward, also don't try to disconnect your arms from body
+* have symmetry in how your torso goes back and forward (see yourself in a mirror and try to minimise any asymmetry)
+* right arm position is key when producing pull (do not rotate your forearm internally)
+* generate your power using your torso
+* have passive wrist action during your backswing
+* check your body alignment using a mirror, maybe your shoulder are aiming left
 
-# Push bias by Phil Kenyon
-## Push/Pull bias test
- * 10 feet putt, putt two balls 14 inches (36 cm) from the ball, 55 mm
+# Push bias by Phil Kenyon (miss right)
+ * Push/Pull bias test - 10 feet putt, putt two balls 14 inches (36 cm) from the ball, 55 mm
 ## Push bias
 * if you push, try to have a stance more to the right and closer to the ball
 ## Understanding your putter
