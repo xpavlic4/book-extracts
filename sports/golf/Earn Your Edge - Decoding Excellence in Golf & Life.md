@@ -1,3 +1,12 @@
+# Ryan Holiday | Ep/049
+* first hour of the day without your mobile phone
+* self-fulfilling prophecy
+* obsession of being better - a gift of every achiever
+
+# Aaron Dill: Titleist Vokey Wedge Master | Ep/61
+* 1,2,3,4 system: in one year you should have 1 PW, 2 GW, 3 SW and 4 LW
+* have one old wedge when practice
+
 # Travis Miller of PGA Memes | Ep/060
 * PGA Memes is private Instagram account
 
