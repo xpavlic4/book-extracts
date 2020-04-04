@@ -1,3 +1,11 @@
+# How to become a better putter
+# Breaking putts
+* if you are linear, ie. better suited to aim at straight line, try to visualize the aimline
+* if you are non-linear visualise the curve
+* hit number of putts aiming at the coin at the end of aimline and number of putts through the gate on a curve. decide what works better for
+* big difference in start lines between a dead weight and a three-foot past putt
+* a downhill putt takes much longer to reach the hole
+
 # Common myths and Misconceptions in putting
 * myth: you have to accelerate, drill: position two balls and try to have backswing (1 unit of time) and forward-swing (from back all the way to forward) also in 1 unit of time
 * myth: low and slow
