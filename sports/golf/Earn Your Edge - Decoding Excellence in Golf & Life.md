@@ -2,6 +2,7 @@
 * first hour of the day without your mobile phone
 * self-fulfilling prophecy
 * obsession of being better - a gift of every achiever
+* keep the main thing main, does this move me closer to the live I want to have
 
 # Aaron Dill: Titleist Vokey Wedge Master | Ep/61
 * 1,2,3,4 system: in one year you should have 1 PW, 2 GW, 3 SW and 4 LW
