@@ -1,4 +1,5 @@
 # How to become a better putter
+
 # Breaking putts
 * if you are linear, ie. better suited to aim at straight line, try to visualize the aimline
 * if you are non-linear visualise the curve
