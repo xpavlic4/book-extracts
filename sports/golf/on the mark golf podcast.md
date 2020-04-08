@@ -1,3 +1,9 @@
+# Billy Horschel on Gaining Consistency in Your Game
+* his dad told him: I am gonna push you very hard to be the best, but once you tell me it doesn't make any fun I stop without any questions
+* doing cardio helps, but it's mental thing
+* slight draw, he don't want to see shots like: starts on target and ended left, starts left and curves left
+* also very good in 3/4 shots 
+
 # Collin Morikawa On Self-Discovery and Improving Your Iron-Game
 * different term: expectation vs. goals
 * his go-to iron is 8 iron
