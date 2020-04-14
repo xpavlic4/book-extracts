@@ -1,3 +1,9 @@
+# Daniel Berger | Ep/062
+* simplify things, think only things you can change
+* pre-shot routine, the biggest difference between an amateur and a PRO
+* breathing should be taught in first lesson
+* he has right miss only, always left-to-right
+
 # Ryan Holiday | Ep/049
 * first hour of the day without your mobile phone
 * self-fulfilling prophecy
