@@ -1,8 +1,11 @@
+# Cameron Tringale Shares How He Gained 20 Yards off the Tee
+* bring the arms to the 8 o'clock position in the downswing and try to hit the ball from here. you have to use your hips to generate power
+
 # Billy Horschel on Gaining Consistency in Your Game
 * his dad told him: I am gonna push you very hard to be the best, but once you tell me it doesn't make any fun I stop without any questions
 * doing cardio helps, but it's mental thing
 * slight draw, he don't want to see shots like: starts on target and ended left, starts left and curves left
-* also very good in 3/4 shots 
+* also very good in 3/4 shots
 
 # Collin Morikawa On Self-Discovery and Improving Your Iron-Game
 * different term: expectation vs. goals
