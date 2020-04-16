@@ -1,3 +1,9 @@
+# David Leadbetter | Ep/048
+* you have to quick-fix for most of the amateurs, they do not have time to work on things longer time
+* everybody cannot be DeChambeau, everything mechanical, the majority people are more feel based
+* Fassi clubhead speed with driver 108 mph
+* you have to find your own recipe, your formula of success
+
 # Daniel Berger | Ep/062
 * simplify things, think only things you can change
 * pre-shot routine, the biggest difference between an amateur and a PRO
