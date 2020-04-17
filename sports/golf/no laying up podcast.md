@@ -1,3 +1,6 @@
+# NLU Podcast, Episode 299: Danielle Kang
+* Butch Harmon tries to motivate his players, he's not very technical with his top players
+
 # NLU Podcast, Episode 294: Justin Thomas
 * 98% of time I don't hit full wedge
 
