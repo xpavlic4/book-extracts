@@ -1,3 +1,9 @@
+# Matt Wallace | Ep/063
+* he tried almost every sport, but Sundays were always golf
+* got to scratch just before 17 yo
+* many young junior golfers are very well mental
+* he had one good warmup in his life
+* the best time he swung the club was the slowest he ever was 
 # David Leadbetter | Ep/048
 * you have to quick-fix for most of the amateurs, they do not have time to work on things longer time
 * everybody cannot be DeChambeau, everything mechanical, the majority people are more feel based
