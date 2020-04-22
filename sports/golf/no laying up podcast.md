@@ -1,3 +1,9 @@
+# NLU Podcast, Episode 305: "Be a Player" authors Pia Nilsson and Lynn Marriott
+
+# NLU Podcast, Episode 304: Patrick Cantlay
+* it's already decided on thursday in the morning how you will perform, that means consistence outside the course (training, eat, fitness)
+* he starts his morning routine 3 hours before his tee-time even if he has a tee-time at 7 am (he's 4 am awake)
+
 # NLU Podcast, Episode 299: Danielle Kang
 * Butch Harmon tries to motivate his players, he's not very technical with his top players
 
