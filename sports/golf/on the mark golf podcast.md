@@ -1,3 +1,6 @@
+# Billy Horschel on Gaining Consistency in Your Game
+* 5-7 putting drills in a day, all games with threshod and pressure, he cannot leave the green until he finished the drill
+
 # Cameron Tringale Shares How He Gained 20 Yards off the Tee
 * bring the arms to the 8 o'clock position in the downswing and try to hit the ball from here. you have to use your hips to generate power
 
