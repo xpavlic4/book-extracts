@@ -1,3 +1,5 @@
+
+
 # Mike Adams and Terry Rowles with the Ultimate Golf Lesson
 * the grip is defined by position of clubface and your hands
 * if you have 4 birdies and 2 bogeys you are top 10 on PGA TOUR, in order to do that you have to have 7 birdie opportunities (inside 20 feet)
