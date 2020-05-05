@@ -1,8 +1,11 @@
+# NLU Podcast, Episode 308: Webb Simpson
+* his us open plan: avoid big numbers, make 8-10 footers
+
 # NLU Podcast, Episode 305: "Be a Player" authors Pia Nilsson and Lynn Marriott
 * one shot, one hole all the time
-* 
+*
 # NLU Podcast, Episode 304: Patrick Cantlay
-* it's already decided on thursday in the morning how you will perform, that means consistence outside the course (training, eat, fitness)
+* it's already decided on Thursday in the morning how you will perform, that means consistence outside the course (training, eat, fitness)
 * he starts his morning routine 3 hours before his tee-time even if he has a tee-time at 7 am (he's 4 am awake)
 
 # NLU Podcast, Episode 299: Danielle Kang
