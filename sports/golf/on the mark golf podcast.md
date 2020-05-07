@@ -1,4 +1,10 @@
+# Boo Weekley on How He Plays the Game and His Ball-striking Secrets
+* you have to play to your strenghts
+* 60 yards and in that matters
+* DJ can hit 2 iron off the tee and land where my driver lies, but he has to play my game from there (meaning Boo is better player once he's on the fairway)
 
+# Dr. Gregg Steinberg Illustrates lessons from Golf's Greats on the Mental Game
+* never mark a ball inside 3 feet, just putt it in
 
 # Mike Adams and Terry Rowles with the Ultimate Golf Lesson
 * the grip is defined by position of clubface and your hands
