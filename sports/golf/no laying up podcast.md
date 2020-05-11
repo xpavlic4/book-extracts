@@ -1,3 +1,5 @@
+# NLU Podcast, Episode 309: 5 Random Topics, Show and Tell Style
+* every par 3 with a tree is called "par 3 dogleg"
 # NLU Podcast, Episode 308: Webb Simpson
 * his us open plan: avoid big numbers, make 8-10 footers
 
