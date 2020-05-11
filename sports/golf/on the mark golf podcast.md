@@ -1,3 +1,6 @@
+# Garth Milne's 5 Tips for Home Workouts to Improve Your Golf Swing
+* we are all creatures of a habit
+
 # Boo Weekley on How He Plays the Game and His Ball-striking Secrets
 * you have to play to your strenghts
 * 60 yards and in that matters
