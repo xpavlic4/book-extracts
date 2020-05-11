@@ -1,3 +1,8 @@
+# Rickie Fowler | Ep/065
+* putting is the easiest to be good at
+* before a tournament he hits 10 putts mirror before range and couple of long putts just before teeing-off
+* you do not want to get fire in Tiger or Michael Jordan
+
 # Jimmy Walker | Ep/064
 * his par4 scoring was horrible
 * who is leader on par3 leads the money list
