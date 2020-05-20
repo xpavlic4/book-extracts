@@ -1,3 +1,10 @@
+# Webb Simpson | Ep/066
+* 2-3 days a week - 1 hour of chipping and bunker drills and 45 mins of putting
+* if you play with people you beat every time you are not improving, find someone who motivates you
+* competition is mental extention of practice
+* he takes pin sheet and go over the round with his caddy  on driving range and try to avoid having an argument on the course.
+* when playing on the course he has no swing thought
+
 # Rickie Fowler | Ep/065
 * putting is the easiest to be good at
 * before a tournament he hits 10 putts mirror before range and couple of long putts just before teeing-off
