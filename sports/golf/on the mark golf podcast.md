@@ -1,3 +1,9 @@
+# Butch Harmon
+* do not teach anybody how to play a golf swing, teach him how to play the game of golf. Everybody would like to swing like TW but you do not have his body
+* golf hast to be taught as 2nd level grade, i.e. a pupil in 2nd grade undrstands what you are explaining to him
+* a change takes time, a bad shot is part of the process
+* why is TW so good? because he always wanted to be better
+
 # Garth Milne's 5 Tips for Home Workouts to Improve Your Golf Swing
 * we are all creatures of a habit
 
