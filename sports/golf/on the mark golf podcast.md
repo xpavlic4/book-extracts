@@ -1,3 +1,6 @@
+# Bob Ford
+* if you cannot putt we will never hear about you
+
 # Butch Harmon
 * do not teach anybody how to play a golf swing, teach him how to play the game of golf. Everybody would like to swing like TW but you do not have his body
 * golf hast to be taught as 2nd level grade, i.e. a pupil in 2nd grade undrstands what you are explaining to him
