@@ -1,9 +1,14 @@
 # Adam Scott | Ep/067
+* shot 69 when 13 yo
+*  his former coach Butch Harmon told him, that when Tiger Woods was playing his best he wasn't afraid of trying things in a tournament (things he has been working on)
+* some people get slow when they get under pressure, some people get fast. if you are fast, try to slow down for couple of meters
+* the best of the best players are getting out his own way to perform. Koepka showed up on 1st hole and hit driver into the dogleg
+* over the ball, he thinks of Inbee Park, slow rhythm
 
 # Webb Simpson | Ep/066
 * 2-3 days a week - 1 hour of chipping and bunker drills and 45 mins of putting
 * if you play with people you beat every time you are not improving, find someone who motivates you
-* competition is mental extention of practice
+* competition is mental extension of practice
 * he takes pin sheet and go over the round with his caddy  on driving range and try to avoid having an argument on the course.
 * when playing on the course he has no swing thought
 
