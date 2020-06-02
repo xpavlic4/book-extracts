@@ -1,3 +1,5 @@
+# Adam Scott | Ep/067
+
 # Webb Simpson | Ep/066
 * 2-3 days a week - 1 hour of chipping and bunker drills and 45 mins of putting
 * if you play with people you beat every time you are not improving, find someone who motivates you
