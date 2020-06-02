@@ -1,9 +1,16 @@
+# Jake Hutt with "5 Ways Not to Suck"
+* tip nr.1 = hit the club in the middle of the face, hit the ground in the correct space, control the trace
+* tip nr.2 = figure out how to grip the club with your right hand now
+* tip nr. 3 = forget about pins location
+* tip nr. 4 = stay true to yourself
+* tip nr. 5 = have fun, don't beat yourself up
+
 # Bob Ford
 * if you cannot putt we will never hear about you
 
 # Butch Harmon
 * do not teach anybody how to play a golf swing, teach him how to play the game of golf. Everybody would like to swing like TW but you do not have his body
-* golf hast to be taught as 2nd level grade, i.e. a pupil in 2nd grade undrstands what you are explaining to him
+* golf hast to be taught as 2nd level grade, i.e. a pupil in 2nd grade understands what you are explaining to him
 * a change takes time, a bad shot is part of the process
 * why is TW so good? because he always wanted to be better
 
@@ -11,7 +18,7 @@
 * we are all creatures of a habit
 
 # Boo Weekley on How He Plays the Game and His Ball-striking Secrets
-* you have to play to your strenghts
+* you have to play to your strengths
 * 60 yards and in that matters
 * DJ can hit 2 iron off the tee and land where my driver lies, but he has to play my game from there (meaning Boo is better player once he's on the fairway)
 
