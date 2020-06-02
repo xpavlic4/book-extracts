@@ -1,3 +1,6 @@
+# NLU Podcast, Episode 316: Henrik Stenson
+* he hit his long irons with eyes closed
+
 # NLU Podcast, Episode 309: 5 Random Topics, Show and Tell Style
 * every par 3 with a tree is called "par 3 dogleg"
 # NLU Podcast, Episode 308: Webb Simpson
