@@ -1,3 +1,11 @@
+# Justin Thomas | Ep/069
+* don't want to watch Golf Channel, because it 
+* when he was leading a tournament, his girlfriend made his nervous asking him questions, his mom went to putting green (never did before) and wished him luck
+* in order to perform you have to rest and sleep
+* always take a week off (no tournaments) before majors, but tries to play at home
+* experiment with Trackman whether 105 yards is full-time lob wedge or cut with sand-wedge
+
+
 # Adam Scott | Ep/067
 * shot 69 when 13 yo
 *  his former coach Butch Harmon told him, that when Tiger Woods was playing his best he wasn't afraid of trying things in a tournament (things he has been working on)
