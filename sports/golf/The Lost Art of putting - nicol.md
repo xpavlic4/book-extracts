@@ -33,3 +33,8 @@ Once you hit your approach shot, concentrate on your breathing until you step on
 
 ## Exercise 3: The after-image
 Practice using retinal after-image. Look at the ball at address and after the impact look at the spot where the ball was.
+
+## Exercise 4: Playing with the after-image
+Concentrate on seeing the after-image, but also introuce the the into the equation. Especially on short putts try to concentrate on seeing the after-image and nothing else.
+
+## Exercise 5: Using the after-image before you play
