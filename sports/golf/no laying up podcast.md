@@ -1,3 +1,7 @@
+# NLU Podcast, Episode 329: Workday Charity Open Recap
+# NLU Podcast, Episode 324: USGA's John Bodenhamer
+* good us-open setup separates good players from bad
+
 # NLU Podcast, Episode 316: Henrik Stenson
 * he hit his long irons with eyes closed
 
