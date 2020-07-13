@@ -1,3 +1,5 @@
+# 426. Andrew Park 
+
 # Jake Hutt with "5 Ways Not to Suck"
 * tip nr.1 = hit the club in the middle of the face, hit the ground in the correct space, control the trace
 * tip nr.2 = figure out how to grip the club with your right hand now
