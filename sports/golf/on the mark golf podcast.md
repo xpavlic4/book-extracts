@@ -1,4 +1,8 @@
-# 426. Andrew Park 
+# Sean Foley on Golf and Doing the Appropriate Things to Improve Your Game
+* you fall to the level of your training not your expectations
+* go and work on shot nr. 3
+
+# 426. Andrew Park
 
 # Jake Hutt with "5 Ways Not to Suck"
 * tip nr.1 = hit the club in the middle of the face, hit the ground in the correct space, control the trace
