@@ -1,5 +1,27 @@
 # golfstateofmind.com
-# 
+# 10 Minute Mental Game Warm-up
+## Breathe 3 mins
+Inhale through your nose until your belly goes out and exhale fully through your mouth. As you breathe, notice where your mind is and how your body feels. If your mind wanders, gently bring it back to your breath.
+
+Breathe into parts of your body where you feel a tension and soften it.
+
+## Be grateful
+ let’s be grateful and happy for the opportunity to play the game we love
+
+## Define the process and stick to it
+You cannot control what happened but you can follow a process
+
+## Visualize success
+visualize shots, putts, outcomes, attitude, body-language
+
+## Have a plan to cope with negativity
+recover from mistakes, manage your emotions, keep motivate yourself
+
+## Create positive affirmations
+"I am the best putter here."
+"My ball-striking is in the best."
+
+
 # HOW TO HANDLE PRESSURE IN GOLF
 * change perspective and lower expectations, think your round as just another round of golf, no "big tournament" thoughts
 * be more self aware, winners are able to shape their behaviours under pressure
