@@ -1,4 +1,14 @@
 # Winter 2020
+## How to Prioritize Your Time
+* always work on things that have the highest KPI (revenue or active users)
+* either talk to users or build the product
+* fake progress (twitter activity, optimizing)
+* 24 hours a day has to be allocated in family, exercise, friends, hobbies, sleep and startup
+* list task and assess impact on weekly goal (high, medium, low) and complexity (easy, medium, hard) and always choose high impact with easy/medium complexity
+* review weekly updates (low value work creep in)
+* avoid switching between coding and meeting/talking to users
+
+
 ## How to evaluate a company
 * Business = growth,
 * your startup idea is a hypothesis. How do you prove it quickly
