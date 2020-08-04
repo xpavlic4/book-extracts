@@ -1,3 +1,22 @@
+# Jordan Spieth | Ep/071
+* his routine: bike with his dog, some meditation Headspace
+* to peak for a major he always he had a plan
+* when major is approaching, be reactive - see shot, hit shot
+* lear how to spin shots around the green
+* all shots around the green are cuts (even bump&runs or flop shots)
+* boring latter drill 
+* his putting routine
+   * 20 straight putts with aimline help from 6-8 feet (sometimes 50 or 100 if he feels he's off)
+   * south, east, nord and west drill 4-6 feet all of them, from 7-9 feet certain number to move on, from 10 feet he has 10 putts and hast to score -4 or better (short or past 2 feet is bogey)
+* gate drill with two ball-markers putters-head apart in the midpoint of the putt, 10-25 feet. 5 balls, 1 point for hitting through the gate, 1 point for correct speed and extra 1 for making it. you need 10 points to clear it.
+* ladder drill, start from 10 feet. hit ball and next one has to go past but no more than a feet. from 30 feet you get 2 feet room, from 50 you get 3 feet
+
+* he looks for patches on the green or points and roll the ball around tham (on high side, because you always miss on low side)
+* he thinks at impact like in a slow-motion movie, it feels that way (not slow tempo)
+* try to reproduce 6 types of shots, high/medium/low draw/fade
+* he played many times with Tiger, Tiger gets mad but never negative
+  
+
 # Justin Thomas | Ep/069
 * don't want to watch Golf Channel, because it 
 * when he was leading a tournament, his girlfriend made his nervous asking him questions, his mom went to putting green (never did before) and wished him luck
