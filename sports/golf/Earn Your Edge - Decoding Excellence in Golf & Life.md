@@ -15,7 +15,10 @@
 * he thinks at impact like in a slow-motion movie, it feels that way (not slow tempo)
 * try to reproduce 6 types of shots, high/medium/low draw/fade
 * he played many times with Tiger, Tiger gets mad but never negative
-  
+* he tries to birdie every hole, plays agressive every time unless there is better chance to score a birdie with a layup/wedge
+* he completely signed off the social media, better for him to work in the darkness
+* he never had a mental health coach, he wanted to visit one, but won back-to-back and got alone from it
+
 
 # Justin Thomas | Ep/069
 * don't want to watch Golf Channel, because it 
