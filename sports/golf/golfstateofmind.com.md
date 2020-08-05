@@ -1,4 +1,42 @@
 # golfstateofmind.com
+# HOW TO SUCCEED UNDER PRESSURE
+
+1. change perspective and lower your expectations
+
+  Stress is the gateway to the zone. Never expect to shoot low score.
+
+2. Be more self-aware
+
+  Know yourself and your tendencies and act Appropriately
+
+3. Lear how to control your body
+
+  Hearth beating faster, muscle tightens, hands shaking
+
+4. Be optimistic and change your behavior patterns
+
+  Act like a hero, envision good things will happen
+
+5. Stay in the present
+
+  one shot at a time, no thinking about past mistakes or uncertainty of the future
+
+6. Slow down
+
+   your subconscious mind is telling you that the situation is uncomfortable, so let’s get it over with and escape it
+
+7. Body language
+
+  choose to have a dominant, powerful posture
+
+8. Self-talk
+
+    Be compassionate, supportive and optimistic
+
+9. practice with pressure
+10. focus on the process
+
+
 # 10 Minute Mental Game Warm-up
 ## Breathe 3 mins
 Inhale through your nose until your belly goes out and exhale fully through your mouth. As you breathe, notice where your mind is and how your body feels. If your mind wanders, gently bring it back to your breath.
