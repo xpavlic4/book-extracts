@@ -1,3 +1,8 @@
+# Dr. Josie Perry shares Mental Skills to Perform
+* watch your purpose, what matters to you, how you wanna be remembered
+* you should try to seek rejection, because that means you were brave
+
+
 # Sean Foley on Golf and Doing the Appropriate Things to Improve Your Game
 * you fall to the level of your training not your expectations
 * go and work on shot nr. 3
