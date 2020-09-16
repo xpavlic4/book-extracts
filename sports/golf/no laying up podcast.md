@@ -1,3 +1,6 @@
+# NLU Podcast, Episode 353: US Open preview
+* picks Patrick Cantley
+
 # NLU Podcast, Episode 352: Jim Furyk
 * US Open signature is to stay on the fairway and be patient
 
