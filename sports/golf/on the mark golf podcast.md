@@ -1,3 +1,6 @@
+# Shawn Hester with Tips on Flighting Shots for Scoring Success
+* if you have skids on your glove that means your club is rotating during the swing
+
 # Sean Foley on Golf and Doing the Appropriate Things to Improve Your Game
 * you fall to the level of your training not your expectations
 * go and work on shot nr. 3
