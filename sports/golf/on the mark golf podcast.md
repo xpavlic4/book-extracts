@@ -1,5 +1,7 @@
 # Shawn Hester with Tips on Flighting Shots for Scoring Success
 * if you have skids on your glove that means your club is rotating during the swing
+* if you measure 160 on your range finder and that's your 7 iron, take 6 iron and swing shoulder to shoulder (example Tommy Fleetwood)
+* in order to be better you have to play golf. just practicing on the range is not sufficient
 
 # Dr. Josie Perry shares Mental Skills to Perform
 * watch your purpose, what matters to you, how you wanna be remembered
