@@ -1,3 +1,9 @@
+# NLU Podcast, Episode 353: US Open preview
+* picks Patrick Cantley
+
+# NLU Podcast, Episode 352: Jim Furyk
+* US Open signature is to stay on the fairway and be patient
+
 # NLU Podcast, Episode 329: Workday Charity Open Recap
 # NLU Podcast, Episode 324: USGA's John Bodenhamer
 * good us-open setup separates good players from bad
