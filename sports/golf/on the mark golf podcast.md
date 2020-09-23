@@ -1,3 +1,7 @@
+# Five Easy Drills to Improve your Ball-striking with Debbie Doniger
+* as a parent push your kid
+* hitting 290 hast to be a minimum
+
 # Shawn Hester with Tips on Flighting Shots for Scoring Success
 * if you have skids on your glove that means your club is rotating during the swing
 * if you measure 160 on your range finder and that's your 7 iron, take 6 iron and swing shoulder to shoulder (example Tommy Fleetwood)
