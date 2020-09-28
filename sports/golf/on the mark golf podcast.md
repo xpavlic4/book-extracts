@@ -6,11 +6,12 @@
 * if you have skids on your glove that means your club is rotating during the swing
 * if you measure 160 on your range finder and that's your 7 iron, take 6 iron and swing shoulder to shoulder (example Tommy Fleetwood)
 * in order to be better you have to play golf. just practicing on the range is not sufficient
+* free worksheets: https://performanceinmind.co.uk/pz/free-worksheets/
 
 # Dr. Josie Perry shares Mental Skills to Perform
 * watch your purpose, what matters to you, how you wanna be remembered
 * you should try to seek rejection, because that means you were brave
-
+* self-talk  techniques can saves you 21 minutes on average in a marathon run
 
 # Sean Foley on Golf and Doing the Appropriate Things to Improve Your Game
 * you fall to the level of your training not your expectations
