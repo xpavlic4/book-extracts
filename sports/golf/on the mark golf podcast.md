@@ -1,3 +1,10 @@
+# 440. Coach Dave Jennings with Tips
+* every time before leaving the green: 30 3-footer consecutive, 15 - 5-footers
+* if you make every putt inside 8 feet on back9 you are very likely to win
+* always play what you have and be honest. everybody who cuts the ball want to draw it, but fairway hit is more
+* do not fight the architect of the golf course, take 3w instead of the driver where there is significantly less place
+* play to your strenghts
+
 # Five Easy Drills to Improve your Ball-striking with Debbie Doniger
 * as a parent push your kid
 * hitting 290 hast to be a minimum
