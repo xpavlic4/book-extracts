@@ -1,3 +1,10 @@
+# 440. Coach Dave Jennings with Tips
+* every time before leaving the green: 30 3-footer consecutive, 15 - 5-footers
+* if you make every putt inside 8 feet on back9 you are very likely to win
+* always play what you have and be honest. everybody who cuts the ball want to draw it, but fairway hit is more
+* do not fight the architect of the golf course, take 3w instead of the driver where there is significantly less place
+* play to your strenghts
+
 # Five Easy Drills to Improve your Ball-striking with Debbie Doniger
 * as a parent push your kid
 * hitting 290 hast to be a minimum
@@ -8,11 +15,12 @@
 * if you have skids on your glove that means your club is rotating during the swing
 * if you measure 160 on your range finder and that's your 7 iron, take 6 iron and swing shoulder to shoulder (example Tommy Fleetwood)
 * in order to be better you have to play golf. just practicing on the range is not sufficient
+* free worksheets: https://performanceinmind.co.uk/pz/free-worksheets/
 
 # Dr. Josie Perry shares Mental Skills to Perform
 * watch your purpose, what matters to you, how you wanna be remembered
 * you should try to seek rejection, because that means you were brave
-
+* self-talk  techniques can saves you 21 minutes on average in a marathon run
 
 # Sean Foley on Golf and Doing the Appropriate Things to Improve Your Game
 * you fall to the level of your training not your expectations
