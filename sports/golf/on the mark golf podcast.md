@@ -1,6 +1,8 @@
 # Five Easy Drills to Improve your Ball-striking with Debbie Doniger
 * as a parent push your kid
 * hitting 290 hast to be a minimum
+* drill in the sand bunker: draw a line between your legs and try to smash the sand on the line (8 out of 10 for better players)
+* driver tip: get on your knees onto a towel and swing around
 
 # Shawn Hester with Tips on Flighting Shots for Scoring Success
 * if you have skids on your glove that means your club is rotating during the swing
