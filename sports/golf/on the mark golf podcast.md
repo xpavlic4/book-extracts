@@ -1,5 +1,9 @@
 # 444. Tee to Green Improvements with J.J. Killeen
 * put your back against the wall, butt, head and arms into 90% position (do it for 30 seconds, multiple times a day)
+* bad bunker players start with square face (he has to manipulated through the swing)
+* use natural instinct when hitting putts
+* play more break on long putts
+* have solid routine and stick to it every single time
 
 # 440. Coach Dave Jennings with Tips
 * every time before leaving the green: 30 3-footer consecutive, 15 - 5-footers
