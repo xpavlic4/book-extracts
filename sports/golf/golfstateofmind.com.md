@@ -1,8 +1,8 @@
 # golfstateofmind.com
-# THE ART OF PUTTING
+## THE ART OF PUTTING
 * The athletic mind doesn’t do technical instruction,  it’s intuitive and only in the present moment
 
-# HOW TO SUCCEED UNDER PRESSURE
+## HOW TO SUCCEED UNDER PRESSURE
 
 1. change perspective and lower your expectations
 
