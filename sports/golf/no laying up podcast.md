@@ -1,3 +1,7 @@
+# NLU Podcast, Episode 366: CJ Cup Recap
+* all shots from a tournament are going to be online, because people want to bet online for various outcomes
+* nice to show a graphic how a player got to the green (not just showing par putt)
+
 # NLU Podcast, Episode 353: US Open preview
 * picks Patrick Cantley
 
