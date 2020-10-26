@@ -1,3 +1,288 @@
+# 444. Tee to Green Improvements with J.J. Killeen
+* put your back against the wall, butt, head and arms into 90% position (do it for 30 seconds, multiple times a day)
+* bad bunker players start with square face (he has to manipulated through the swing)
+* use natural instinct when hitting putts
+* play more break on long putts
+* have solid routine and stick to it every single time
+
+# 440. Coach Dave Jennings with Tips
+* every time before leaving the green: 30 3-footer consecutive, 15 - 5-footers
+* if you make every putt inside 8 feet on back9 you are very likely to win
+* always play what you have and be honest. everybody who cuts the ball want to draw it, but fairway hit is more
+* do not fight the architect of the golf course, take 3w instead of the driver where there is significantly less place
+* play to your strenghts
+
+# Five Easy Drills to Improve your Ball-striking with Debbie Doniger
+* as a parent push your kid
+* hitting 290 hast to be a minimum
+* drill in the sand bunker: draw a line between your legs and try to smash the sand on the line (8 out of 10 for better players)
+* driver tip: get on your knees onto a towel and swing around
+
+# Shawn Hester with Tips on Flighting Shots for Scoring Success
+* if you have skids on your glove that means your club is rotating during the swing
+* if you measure 160 on your range finder and that's your 7 iron, take 6 iron and swing shoulder to shoulder (example Tommy Fleetwood)
+* in order to be better you have to play golf. just practicing on the range is not sufficient
+* free worksheets: https://performanceinmind.co.uk/pz/free-worksheets/
+
+# Dr. Josie Perry shares Mental Skills to Perform
+* watch your purpose, what matters to you, how you wanna be remembered
+* you should try to seek rejection, because that means you were brave
+* self-talk  techniques can saves you 21 minutes on average in a marathon run
+
+# Sean Foley on Golf and Doing the Appropriate Things to Improve Your Game
+* you fall to the level of your training not your expectations
+* go and work on shot nr. 3
+
+# 426. Andrew Park
+
+# Jake Hutt with "5 Ways Not to Suck"
+* tip nr.1 = hit the club in the middle of the face, hit the ground in the correct space, control the trace
+* tip nr.2 = figure out how to grip the club with your right hand now
+* tip nr. 3 = forget about pins location
+* tip nr. 4 = stay true to yourself
+* tip nr. 5 = have fun, don't beat yourself up
+
+# Bob Ford
+* if you cannot putt we will never hear about you
+
+# Butch Harmon
+* do not teach anybody how to play a golf swing, teach him how to play the game of golf. Everybody would like to swing like TW but you do not have his body
+* golf hast to be taught as 2nd level grade, i.e. a pupil in 2nd grade understands what you are explaining to him
+* a change takes time, a bad shot is part of the process
+* why is TW so good? because he always wanted to be better
+
+# Garth Milne's 5 Tips for Home Workouts to Improve Your Golf Swing
+* we are all creatures of a habit
+
+# Boo Weekley on How He Plays the Game and His Ball-striking Secrets
+* you have to play to your strengths
+* 60 yards and in that matters
+* DJ can hit 2 iron off the tee and land where my driver lies, but he has to play my game from there (meaning Boo is better player once he's on the fairway)
+
+# Dr. Gregg Steinberg Illustrates lessons from Golf's Greats on the Mental Game
+* never mark a ball inside 3 feet, just putt it in
+
+# Mike Adams and Terry Rowles with the Ultimate Golf Lesson
+* the grip is defined by position of clubface and your hands
+* if you have 4 birdies and 2 bogeys you are top 10 on PGA TOUR, in order to do that you have to have 7 birdie opportunities (inside 20 feet)
+* in order to win you have to hit every par3 in the middle of the green, especially 12th on augusta and 17th on tpc sawgrass
+
+# Mike Jacobs on the Forces and Torques on the Golf Club During the Swing
+
+# Billy Horschel on Gaining Consistency in Your Game
+* 5-7 putting drills in a day, all games with threshold and pressure, he cannot leave the green until he finished the drill
+
+# Cameron Tringale Shares How He Gained 20 Yards off the Tee
+* bring the arms to the 8 o'clock position in the downswing and try to hit the ball from here. you have to use your hips to generate power
+
+# Billy Horschel on Gaining Consistency in Your Game
+* his dad told him: I am gonna push you very hard to be the best, but once you tell me it doesn't make any fun I stop without any questions
+* doing cardio helps, but it's mental thing
+* slight draw, he don't want to see shots like: starts on target and ended left, starts left and curves left
+* also very good in 3/4 shots
+
+# Collin Morikawa On Self-Discovery and Improving Your Iron-Game
+* different term: expectation vs. goals
+* his go-to iron is 8 iron
+* check the basics
+
+# Ryan Armour Shares His Keys to Accurate Ball-Striking
+* you have to start  hitting in the middle of the green as a kid and learning hitting to the side
+* never aim at the trouble
+* you cannot birdie every hole, par is a good score
+* if you have 6-8 wedges, he tries to birdie 4 holes
+* never try to hit so that you are out of balance, that helps you hit the sweetspot
+
+# Webb Simpson on Getting the Most Out of Your Game
+* left side of the hole is 90% not time in play
+* if you feel tired on the range, stop immediately
+* all shots are equal in terms of importance (help decrease the meaning of the moment), always approach same way
+
+# Robert Damron Talks Golf, Golf Swing Technique, and Lessons from Arnold Palmer
+* you are never gonna be too good with distance wedges
+* if you have a tough driving hole, the worst thing is swing harder and steer it (pick little target instead)
+* Justin Thomas said: I want to beat those guys so much they want to take off
+
+# Scott Fawcett (DECADE) on Better Decision-Making and Course Management
+* aggressive swing at conservative targets
+* every bad shot means indecision
+* the most important thing when holding a sand wedge is to avoid bogey, not to score a birdie
+* 4.6 average on par5 is PGA Tour
+* 5 things Tiger invented:
+  * no bogeys on par5
+  * no double bogeys
+  * no 3-putts
+  * no blow easy saves
+  * no bogeys with 9 iron or less
+* you can have 6 those things in a 4-day tournament and still wins
+* average winner on the PGA Tour has 6.4 of those things in an event
+* only two situation where you should have a birdie mindset:
+  * 2nd shot on par5
+  * tee-shot on drivable par4
+* accept the shot pattern no matter what it is
+
+
+# Frank Nobilo Shares His Opinions on Golf and the Development of the Game
+* if you are not learning from your parents something is wrong
+* mindset "I always putt better when putt for a birdie"
+* Tiger Woods - he keep looking forward
+
+# Max Homa with Lessons He has Learned in Professional Golf
+* you need to have an identity in golf, e.g. Iam a good iron players
+
+# David Poulton Analyzes the Golf Swings of the Legends
+* people want results too fast
+* lag is dangerous place to go for amateur players when improve
+
+# Stuart Morgan on Improving Performance and Play at an Elite Level
+* Austrian teacher, performance coach
+* juniors spend too much time on the range
+* some people prefer calling performance coach, some people prefer write after a tournament
+* stop with the negative self-talk
+* identify the environment when hitting bad shot (ball downhill, OOB on the left etc.)
+
+# Mike Granato (Athletic Motion Golf) on The 5 Biggest Misconceptions in the Golf Swing
+
+
+# Learn about Separation Values and How to Take Advantage of them with "Lowest Score Wins"
+* never try to force a birdie, you have to remain disciplined
+# Understand Your Body and Understand Your Swing with Dave Phillips (TPI)
+* all good players are almost identical at the impact
+* mytpi.com, you can locate an instructor based on area
+
+# Monte Scheinblum Reveals How to Easily Gain Power Off the Tee
+* imagine staying on a clock, where 12 oçlock is facing target, high hcp players starts to move the club to 5 oçlock (casting), whereas good single hcp players try to move towards 7 or 8 oclock
+* hip speed is higher on LPGA tour than PGA Tour, PGATour has 20 mph higher clubhead speed
+* you have to be patient and apply the speed later
+* rebeliongolf.com
+
+# Tips from The PGA TOUR. Episode 43 - Rory McIlroy's Insights on Feel vs Data
+* dont't try to hit numbers on monitor, use more feel
+* try extremes, if you hit heel try to hit toe
+
+# Marcus Potter Helps You to Improve Your Putting
+* set your putter-face first and then set your feet
+* ball position between your left cheek and left ear
+* once your eyes get back to the ball you shouldn't spend much time thinking about hitting and pull the trigger
+* grip pressure: keep consistent pressure through the stroke
+* drill: take it back, pause for 4 seconds
+* mark a dot under the ball and concentrate on it once the ball is 2-3 feet away
+* drill Tiger did: 5 feet through a gate
+* drill: 5 tees around the hole from 3 feet  and make 25 putts switching after every putt, after that make 20 in the row from 5 feet
+
+# Tips from The PGA TOUR. Episode 42 - Tips on Bunker Play and Commitment to the Target
+* bunker shot form a plugged lie: hinge and unhinge your wrists, you create high velocity
+* for more advanced players: keep your chin high and focus on the front side of the golf ball
+* hitting through the window, imagine the window on the 2nd or 3rd floor and try to hit through it
+
+# Karl Morris on Improved Performance and the Lost Art of Playing Golf
+* every shot should be taught on the golf course
+* what image is going through your mind when you step in, work on your imagination
+* 9-shot drill - do you feel comfortable hitting them?
+* try to walk the course backwards and you see whole different course, start at the 18th green and walk to the tee box etc.
+* differential practice - start with something and every other shot you shot differently (open stance)
+
+# Tips from The PGA TOUR. Episode 41 - Improve Accuracy off the Tee and on Approach Shots a la Justin Thomas
+* grip down your driver to increase your accuracy
+* if it's windy swing it easy
+* do not aim outside of the green if it's windy (margins of the target)
+
+# PGA Professional Rob Labritz on Winter and Summer Practice for Good Golf Year-round
+* small swings with big clubs (8i 20 meters, 40 meters)
+* hands parallel swings in front of the mirror (brain learn this way)
+* have one club hit to different targets or many clubs to the same target - that's winter work
+# Mike Napoleon from Superspeed Golf with Insights on Improving Swing Speed
+
+# Jeff Martin Helps You to Think about Golf with a Productive Mindset
+
+# Tips from The PGA Tour - Episode 39. Ball-striking Lessons from Henrik Stenson and Tiger Woods
+
+# Chris Green Addresses Important Launch Monitor Data and Matchups
+* 1 minute on a clock is 6 degrees, a minor change with clubface is about 2-3 degrees
+
+# Turn Your Practice into Good Golf Scores with Devan Bonebrake
+
+# Tips from The PGA TOUR. Episode 37 - Pitch the Ball like Brendan Todd
+* shot nr.3 is the most important in golf
+
+# Adam Schriber on Activating the Power Source in the Golf Swing
+* coach of Anthony Kim
+
+# Jamy Belcher on The Foundational Principles of Leadership and Being Your Best Self
+* ex "you" ces - excuses - the word YOU is in the middle, because it is all about you.
+
+# Tips from PGA TOUR 36
+* playing from the divot:
+  - the ball in the middle of the stance
+  - play like a punch shot
+
+
+# Tips from PGA TOUR 35
+* Rory McIlroy: The game of golf is such a fickle game. One week you have missed the cut and the next wee you win by 7 shots.
+* Tiger Woods: you can control self-talk, attitude.
+
+# The optimal performance swing
+* indian woman teacher
+
+# Adam Young
+*  7 laws of good impact
+* ground contact - where you hit the ground, with irons the ball first and the ground after
+* drill, take an old club and draw a cross on concrete. than try to hit the cross on the concrete very lightly. the most of the golfers hit well before the cross
+* face contact
+* speed - drill: give a golfer a club and tell him it hast to make the loudest swoosh, most of them understand that it is not about power and strength
+
+# Tips from episode 34
+* digging out of your dirt is the best way how to understand things, try things out, play one club round
+
+# Peter Croker
+* if you get a drill, do it very slowly
+
+# Tips from episode 33
+* even the best golfers like Justin Rose has a range, he shot 78 one day and 64 the next one
+* mental scorecard, one PRO said to himself, he has to just 2 shots in a round where he is not fully committed, but the rest of the shots (95 percent) he has to be fully committed to every shot he had
+* said two positive things after every shot, good attitude is genesis for a good golf
+* don't focus on your score
+
+# Tips from episode 32
+* a good putt will miss on the high edge
+* if Kevin Na has any doubt he will not fire the putt
+
+# Mike Jacobs
+* science means nothing until you make it useful
+* try following to illustrate the clubhead speed - half shot and during the impact try to move handle forward, next shot try to half shot again and try to stop the handle and swing more around the body. You should see double or triple swing speed in the second shot
+* concentrate on increasing your ball speed instead of clubhead speed, because the majority of amateur golfers do not have a skeleton of a jacked-up PGA Tour professionals
+
+# Tim Cusick
+* if you are in rough and the grass is growing towards you, try to hold the club open during the impact, because otherwise your club is going to be stuck in the grass and closed
+* use hybrid out of the rough because it glides better than iron
+# Tips from episode 31
+* Joe Miller world long drive champion on youtube. He doesn't rotate much, but creates speed.
+* Cameron Champ setup: the ball forward in stance (gives you more time to accelerate the clubhead)
+* create a whip, arms are relaxed, relaxed shoulders
+
+
+# Andrew Getson
+* PGA Tour pros hit irons 80% swing speed, they swing driver 100%
+* PGA Tour pros never move lower body when they move
+
+# Tips from episode 30
+* the ball struck offset twist the face
+* start to measure the length of your stroke
+* have two tees 3 inches apart and putt inside it without touching those tees, later with 4 inches
+
+# Tips from episode 28
+* Rory mcillroy hit 7/9 safe side of the green
+
+# Tips from episode 27
+* play your round in as multiple 3 holes tournaments, eg. in Schoenfeld, first three holes in par
+
+# Tips from episode 23
+* your are 2 swings away from slump
+
+# David Ogrin
+* PRO: you have to listen to me what I am saying until you can beat me
+* if a girl shows up with tape on her wrist, do only chipping and putting
+
 # Gary Nicol
 * play golf on the range as you would be on the golf course. imagine you are you stay on the first tee and had to hit to the right side of the fairway with your 3w. once you step on the teebox you are already in the play-mode
 * play wrong golf - if you play for fun on the course you are not allowed to play the club you would normally play. Let's say green is 140 meters, you'd normally play 8i. You have to play 9i or 7i. This should teach you to be creative.
@@ -215,7 +500,9 @@ your left feet should flair out so that you can rotate better.
 * you play one shot at the time, stay in the present
 * do not hit a shot if you are not ready or in doubt
 
-# Oliver Morton
+# Oliver Morton with Tips and Practice Drills to Improve your On-course Performance
+* 50 balls practice (limit practice session time)
+
 
 # 20190114 Pro Golf synopsis
 * putting is 2nd most importing part of the game

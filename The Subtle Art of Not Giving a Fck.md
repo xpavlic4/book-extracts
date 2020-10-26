@@ -6,7 +6,7 @@ The true measurement of self-worth is not how a person feels about her positive 
 
 If you are exceptional at one thing, chances are you are average or below average at most other things.
 
-A lot of people are afraid to accept mediacrity because they believe that if they accept it, they will never achieve anything, never improve, and that their life won't matter. Once you accept the premise that a life is worthwhile only if it is truly notable and great, then you basically accept the fact that most of the human population sucks and is worthless. People who become great at something become great because they are mediocre and they could be so much better.
+A lot of people are afraid to accept mediocrity because they believe that if they accept it, they will never achieve anything, never improve, and that their life won't matter. Once you accept the premise that a life is worthwhile only if it is truly notable and great, then you basically accept the fact that most of the human population sucks and is worthless. People who become great at something become great because they are mediocre and they could be so much better.
 
 ## The Value of Suffering
 
@@ -39,8 +39,8 @@ Rule: if it's down to me being screwed up, or everybody else being screwed up, i
 
 At some point, most of us reach a place where we're afraid to fail, where we instinctively avoid failure and stick only to what is placed in front of us or only what we're already good at.
 
-If you are stuck on a problme, don't sit there and think about it; just start working on it.
+If you are stuck on a problem, don't sit there and think about it; just start working on it.
 
-Waiting for a motivation to take an action is wrong. It is an endless loop Inspiration -> Motivation -> Action -> Inspiratio -> Motivation ...
+Waiting for a motivation to take an action is wrong. It is an endless loop Inspiration -> Motivation -> Action -> Inspiration -> Motivation ...
 
 With simply doing something as your only metric how to measure the success - well, then even the failure pushes you forward.

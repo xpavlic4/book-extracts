@@ -1,4 +1,115 @@
 # golfstateofmind.com
+## THE ART OF PUTTING
+* The athletic mind doesn’t do technical instruction,  it’s intuitive and only in the present moment
+
+## HOW TO SUCCEED UNDER PRESSURE
+
+1. change perspective and lower your expectations
+
+  Stress is the gateway to the zone. Never expect to shoot low score.
+
+2. Be more self-aware
+
+  Know yourself and your tendencies and act Appropriately
+
+3. Lear how to control your body
+
+  Hearth beating faster, muscle tightens, hands shaking
+
+4. Be optimistic and change your behavior patterns
+
+  Act like a hero, envision good things will happen
+
+5. Stay in the present
+
+  one shot at a time, no thinking about past mistakes or uncertainty of the future
+
+6. Slow down
+
+   your subconscious mind is telling you that the situation is uncomfortable, so let’s get it over with and escape it
+
+7. Body language
+
+  choose to have a dominant, powerful posture
+
+8. Self-talk
+
+    Be compassionate, supportive and optimistic
+
+9. practice with pressure
+10. focus on the process
+
+
+# 10 Minute Mental Game Warm-up
+## Breathe 3 mins
+Inhale through your nose until your belly goes out and exhale fully through your mouth. As you breathe, notice where your mind is and how your body feels. If your mind wanders, gently bring it back to your breath.
+
+Breathe into parts of your body where you feel a tension and soften it.
+
+## Be grateful
+ let’s be grateful and happy for the opportunity to play the game we love
+
+## Define the process and stick to it
+You cannot control what happened but you can follow a process
+
+## Visualize success
+visualize shots, putts, outcomes, attitude, body-language
+
+## Have a plan to cope with negativity
+recover from mistakes, manage your emotions, keep motivate yourself
+
+## Create positive affirmations
+"I am the best putter here."
+"My ball-striking is in the best."
+
+
+# HOW TO HANDLE PRESSURE IN GOLF
+* change perspective and lower expectations, think your round as just another round of golf, no "big tournament" thoughts
+* be more self aware, winners are able to shape their behaviours under pressure
+* learn how to control your physiology, feel your muscles are tight, heart is beating faster and act accordingly
+* change your thinking patterns, you are the hero
+* stay more in the present, think about what needs to be done right now, very simple
+* slow down, walk, swing
+* notice your body language, instead of head drop choose to be dominant and have powerful posture
+* notice self-talk, avoid any negativity
+* practice with pressure
+
+# How to achieve your goals in 2020
+* extrinsic and intrinsic motivation
+  - extrinsic means money, respect, trophies
+  - intrinsic means following purpose
+* performance steps - do not set them, those are predictions of the future and you cannot control future
+* process goals - set actionable and increase them
+
+# HOW TO AVOID NEGATIVE THINKING IN GOLF
+* thoughts come and go and we cannot control it
+* thoughts become emotions when you give them power
+* make gratitude a daily habit
+
+
+## 10-ways-improve-game-winter-months-email
+* evaluate Stats
+* set goals for next season
+  - set performance goals (stats for specific areas of the game you need to improve to get you there)
+  -  process goals – what specifically you are going to do to achieve your performance goals
+* start a specific golf fitness regime
+* improve your concentration
+  - headspace or calm.com
+* practice mindfulness
+* educate yourself
+  - Earn Your Edge Podcast   
+* sleep well
+* practice more effectively
+* start a performance journal on coachnow.com
+
+## how to free your mind and play your best golf
+* in between shots, direct your focus of attention to breathing and what you see and feel
+* practice refocus: ask yourself "I wonder what my next though will be" and notice how long it is before a thought comes in. Try extend that time to several seconds.
+
+## rory mcillroy 3 ps
+* have process goals instead of expectations
+* persistence - it is not done until you sank the putt on 18th
+
 ## how to make more putts
 * read the putt from multiple angles
 * determine your start line
