@@ -1,3 +1,16 @@
+# Gary Murphy highlights Lessons you can learn from the Tour Professionals
+* pros do the basics right
+
+
+# Jon Sherman (Practical Golf) Discusses Course Management for Better Scores
+* better in golf means eliminate doubles, not more birdies
+* driver fairway percentage and 3w fairway percentage are SAME
+* 3w is designed to be hit from the fairway
+* the only reason to use fairway metal off the tee-box is to limit your distance
+* aim at the center of the green and play the back yardage, 94% of golfers miss it short
+* GIRs are very precise way of expressing your handicap
+* if you are not playing more than 10-15 times a year, you cannot expect to be better
+
 # 444. Tee to Green Improvements with J.J. Killeen
 * put your back against the wall, butt, head and arms into 90% position (do it for 30 seconds, multiple times a day)
 * bad bunker players start with square face (he has to manipulated through the swing)

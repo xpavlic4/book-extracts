@@ -1,3 +1,12 @@
+# NLU Podcast, Episode 367: Bobby Weed
+* drainage is key-component
+* difference between renovation and starting from the scratch
+* we need golf courses where you can play under 3 hours
+* how to stop long-hitters? deep rough, deep bunkers
+
+# NLU Podcast, Episode 365: Rocco Mediate
+* great strikers survives great putter 
+
 # NLU Podcast, Episode 366: CJ Cup Recap
 * all shots from a tournament are going to be online, because people want to bet online for various outcomes
 * nice to show a graphic how a player got to the green (not just showing par putt)
