@@ -1,6 +1,9 @@
 # Gary Murphy highlights Lessons you can learn from the Tour Professionals
 * pros do the basics right
-
+* find the hardest driver teeshot on your course and hit many drives when nobody is on the course
+* on the range, hit shots and your next target is where the previous one landed
+* amateurs have golf as a hobby, turn your phones off and have fun
+* good routine is nr.1 for him
 
 # Jon Sherman (Practical Golf) Discusses Course Management for Better Scores
 * better in golf means eliminate doubles, not more birdies
