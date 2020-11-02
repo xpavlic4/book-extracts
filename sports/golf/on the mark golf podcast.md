@@ -1,3 +1,6 @@
+# Mike Schy with Thoughts on Variability Reduction and Streamlining your Golf Swing
+
+
 # Gary Murphy highlights Lessons you can learn from the Tour Professionals
 * pros do the basics right
 * find the hardest driver teeshot on your course and hit many drives when nobody is on the course

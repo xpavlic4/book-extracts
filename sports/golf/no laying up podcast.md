@@ -1,3 +1,9 @@
+# NLU Podcast, Episode 370: Matt Fitzpatrick
+* uninstall all social apps from his phones
+* firm greens help short-hitters, long-hitters hit out of rough without any spin
+* a skill is hitting it long AND straight and Bryson did that
+* second shot on 13th is very difficult
+
 # NLU Podcast, Episode 367: Bobby Weed
 * drainage is key-component
 * difference between renovation and starting from the scratch
