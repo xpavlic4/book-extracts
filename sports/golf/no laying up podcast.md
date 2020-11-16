@@ -1,3 +1,27 @@
+# NLU Podcast, Episode 376: Masters Saturday Recap
+* Langer is better than Bryson on the leaderboard
+* Spieth has a mental problem
+* DJ is beast
+
+# NLU Podcast, Episode 373: Masters Preview
+
+# NLU Podcast, Episode 372: Wright Thompson on The Masters
+* there is only Masters and the British Open, the 3rd is US Open and PGA doesn't even exist
+* pros have every club built specificaly for them
+
+
+# NLU Podcast, Episode 371: Every hole at Augusta National with Matty Kelly (Marc Leishman's caddie)
+* 6500 dollars/week paying for a house at Augusta
+* caddies discuss among themselves how greens at Augusta National changed, because the club doesn't say anything official
+* you can get away in Augusta when your short game is sharp and you missed it in right places
+* caddie of Mark Leischman watches early coverage in TV to get some tips how to play
+* nr10 the more you hook it from the teebox the better
+* nr11 miss the green always, avoid the water at all cost
+* nr18, Bryson is going to hit over bunkers on the left
+
+# NLU Podcast, Episode 369: Jim Urbina
+* you are not a golf course architect, you are landscape planner
+
 # NLU Podcast, Episode 370: Matt Fitzpatrick
 * uninstall all social apps from his phones
 * firm greens help short-hitters, long-hitters hit out of rough without any spin
@@ -11,7 +35,7 @@
 * how to stop long-hitters? deep rough, deep bunkers
 
 # NLU Podcast, Episode 365: Rocco Mediate
-* great strikers survives great putter 
+* great strikers survives great putter
 
 # NLU Podcast, Episode 366: CJ Cup Recap
 * all shots from a tournament are going to be online, because people want to bet online for various outcomes
