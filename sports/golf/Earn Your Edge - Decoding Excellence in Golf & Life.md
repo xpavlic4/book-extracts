@@ -1,3 +1,15 @@
+# Abe Ancer | Ep/076
+* his first time in Augusta
+* his dad was his coach, he taught him being humble
+* his dad told him there's always be someone better than you
+* he was standing next to Rory and was doubting himself, because Rory hit that so good
+* he went to see a putting coach
+* you have to know your grind on your wedge and how to interact with the grass
+* he is too small, gaining muscle wouldn't improve his long game too much. that's why he works on his wedges
+* when he played the Augusta for the first time he wanted to play without a bogey
+* he played the whole week without a bogey
+* he loves to see the ball curve from the center towards to flag
+
 # Jordan Spieth | Ep/071
 * his routine: bike with his dog, some meditation Headspace
 * to peak for a major he always he had a plan
