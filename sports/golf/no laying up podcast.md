@@ -1,3 +1,12 @@
+# NLU Podcast, Episode 379: Lukas Michel
+* mid-am us champion, played in Masters 2020
+* every invitee to Augusta can play the course
+* the course is completely different in November
+* he went into the Augusta store and met Adam Scott
+* he know he has to be better in long game (he can hit 5 out of 10 through target)
+* Tiger Woods is amazing how he changed things, because it is very difficult for someone who has been playing so long to change anything
+
+
 # NLU Podcast, Episode 378: Stephen Curry
 *  started as 9 yo, mostly in the summer when his dad didn't play in NBA
 * he plays maybe twice a month during the season
