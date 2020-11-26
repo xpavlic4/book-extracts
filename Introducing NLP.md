@@ -39,3 +39,14 @@ Rapport (a close and harmonious relationship)
 
 ## The Doors of Perception
 
+* much of our thinkinng is typically a mixture of these remembered and constructed sense impressions
+* visual system can be external or internal (when mentally visualizing)
+* auditory system external or internal
+* kinesthetics external (touch, temperature, moisture) vs internal kinesthetics (remembered sensations, emotions)
+
+## Lead System
+* think back again to your vacation, what comes first - a picture, sound or a feeling?
+
+## Eye accessing Cues
+* looking up left and up is how most right-handed people remember images
+* looking down and right is the way people get in touch with their feelings
