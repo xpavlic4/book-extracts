@@ -1,3 +1,44 @@
+# NLU Podcast, Episode 379: Lukas Michel
+* mid-am us champion, played in Masters 2020
+* every invitee to Augusta can play the course
+* the course is completely different in November
+* he went into the Augusta store and met Adam Scott
+* he know he has to be better in long game (he can hit 5 out of 10 through target)
+* Tiger Woods is amazing how he changed things, because it is very difficult for someone who has been playing so long to change anything
+
+
+# NLU Podcast, Episode 378: Stephen Curry
+*  started as 9 yo, mostly in the summer when his dad didn't play in NBA
+* he plays maybe twice a month during the season
+* do not burn yourself in the practice rounds, otherwise you have no power on Thursday and Friday
+* he does Trackman very sporadic
+* played Kingsbarns, Glen Eagles, Carnoustie
+* he thinks DJ or Rory wins the Masters (DJ won)
+
+# NLU Podcast, Episode 376: Masters Saturday Recap
+* Langer is better than Bryson on the leaderboard
+* Spieth has a mental problem
+* DJ is beast
+
+# NLU Podcast, Episode 373: Masters Preview
+
+# NLU Podcast, Episode 372: Wright Thompson on The Masters
+* there is only Masters and the British Open, the 3rd is US Open and PGA doesn't even exist
+* pros have every club built specifically for them
+
+
+# NLU Podcast, Episode 371: Every hole at Augusta National with Matty Kelly (Marc Leishman's caddie)
+* 6500 dollars/week paying for a house at Augusta
+* caddies discuss among themselves how greens at Augusta National changed, because the club doesn't say anything official
+* you can get away in Augusta when your short game is sharp and you missed it in right places
+* caddie of Mark Leischman watches early coverage in TV to get some tips how to play
+* nr10 the more you hook it from the tee box the better
+* nr11 miss the green always, avoid the water at all cost
+* nr18, Bryson is going to hit over bunkers on the left
+
+# NLU Podcast, Episode 369: Jim Urbina
+* you are not a golf course architect, you are landscape planner
+
 # NLU Podcast, Episode 370: Matt Fitzpatrick
 * uninstall all social apps from his phones
 * firm greens help short-hitters, long-hitters hit out of rough without any spin
@@ -11,7 +52,7 @@
 * how to stop long-hitters? deep rough, deep bunkers
 
 # NLU Podcast, Episode 365: Rocco Mediate
-* great strikers survives great putter 
+* great strikers survives great putter
 
 # NLU Podcast, Episode 366: CJ Cup Recap
 * all shots from a tournament are going to be online, because people want to bet online for various outcomes

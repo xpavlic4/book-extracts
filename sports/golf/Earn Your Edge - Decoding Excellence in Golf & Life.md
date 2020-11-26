@@ -1,13 +1,25 @@
+# Abe Ancer | Ep/076
+* his first time in Augusta
+* his dad was his coach, he taught him being humble
+* his dad told him there's always be someone better than you
+* he was standing next to Rory and was doubting himself, because Rory hit that so good
+* he went to see a putting coach
+* you have to know your grind on your wedge and how to interact with the grass
+* he is too small, gaining muscle wouldn't improve his long game too much. that's why he works on his wedges
+* when he played the Augusta for the first time he wanted to play without a bogey
+* he played the whole week without a bogey
+* he loves to see the ball curve from the center towards to flag
+
 # Jordan Spieth | Ep/071
 * his routine: bike with his dog, some meditation Headspace
 * to peak for a major he always he had a plan
 * when major is approaching, be reactive - see shot, hit shot
-* lear how to spin shots around the green
-* all shots around the green are cuts (even bump&runs or flop shots)
-* boring latter drill 
+* learn how to spin shots around the green
+* all shots around the green are cuts (even bump & runs or flop shots)
+* boring latter drill
 * his putting routine
-   * 20 straight putts with aimline help from 6-8 feet (sometimes 50 or 100 if he feels he's off)
-   * south, east, nord and west drill 4-6 feet all of them, from 7-9 feet certain number to move on, from 10 feet he has 10 putts and hast to score -4 or better (short or past 2 feet is bogey)
+   * 20 straight putts with aim-line help from 6-8 feet (sometimes 50 or 100 if he feels he's off)
+   * south, east, north and west drill 4-6 feet all of them, from 7-9 feet certain number to move on, from 10 feet he has 10 putts and hast to score -4 or better (short or past 2 feet is bogey)
 * gate drill with two ball-markers putters-head apart in the midpoint of the putt, 10-25 feet. 5 balls, 1 point for hitting through the gate, 1 point for correct speed and extra 1 for making it. you need 10 points to clear it.
 * ladder drill, start from 10 feet. hit ball and next one has to go past but no more than a feet. from 30 feet you get 2 feet room, from 50 you get 3 feet
 
@@ -21,7 +33,7 @@
 
 
 # Justin Thomas | Ep/069
-* don't want to watch Golf Channel, because it 
+* don't want to watch Golf Channel, because it
 * when he was leading a tournament, his girlfriend made his nervous asking him questions, his mom went to putting green (never did before) and wished him luck
 * in order to perform you have to rest and sleep
 * always take a week off (no tournaments) before majors, but tries to play at home
