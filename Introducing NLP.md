@@ -50,3 +50,13 @@ Rapport (a close and harmonious relationship)
 ## Eye accessing Cues
 * looking up left and up is how most right-handed people remember images
 * looking down and right is the way people get in touch with their feelings
+* looking up and right when trying to imagine something
+* looking up and left when trying to visual remembered images
+* looking to the right = constructed sounds, left = remembered sounds
+* looking down and right = internal dialogue
+
+# Submodalities
+
+If your brain conjures up a painful scene, dissociate from it (you see yourself in your imagination). 
+To enjoy pleasant memories to the full, make sure you are associated (you see it through your own eyes in your imagination)
+
