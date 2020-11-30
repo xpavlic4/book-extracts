@@ -1,3 +1,12 @@
+# Mark Broadie with Strokes Gained Insights to Lower Your Scores
+* off the tee - avoid OOB at all cost by moving your shot pattern (if you hit 1 out of 50 into OOB it's ok)
+* even the worst accuracy hitters on tour miss just only one more fairway to the average
+* when you face 80 yards shot over a bunker your nr.1 goal is to land the ball on the green otherwise you are loosing 0.75 on average if you try to hit it over the bunker to the flag
+* track proximity on your approach shots, 125-175 yards range is very good indicator how amateur player is
+* if 90-golfer had a short game of 80-golfer he would safe 3 shots in a round
+* 90-golfer has 10 putts between 3-10 feet
+* his app is called GolfMetrics
+
 # Mike Schy with Thoughts on Variability Reduction and Streamlining your Golf Swing
 
 
