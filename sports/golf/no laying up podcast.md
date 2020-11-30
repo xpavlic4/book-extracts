@@ -1,3 +1,12 @@
+# NLU Podcast, Episode 380: Joaquín Niemann
+* started playing golf when 3 yo
+* he put too much pressure on him when he was very young
+* he likes to be around kids
+* he hits it low when he is very nervous
+* he likes firm conditions even though he didn't hit it high
+* his first win Greenbrier, he didn't even know how he scored
+* his practice round in Augusta was with spanish guys, Sergio, Larazabal
+
 # NLU Podcast, Episode 379: Lukas Michel
 * mid-am us champion, played in Masters 2020
 * every invitee to Augusta can play the course
