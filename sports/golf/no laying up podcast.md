@@ -1,3 +1,5 @@
+# NLU Podcast, Episode 381: Match 3.0 Recap & David McLay Kidd
+
 # NLU Podcast, Episode 380: Joaquín Niemann
 * started playing golf when 3 yo
 * he put too much pressure on him when he was very young
@@ -6,6 +8,8 @@
 * he likes firm conditions even though he didn't hit it high
 * his first win Greenbrier, he didn't even know how he scored
 * his practice round in Augusta was with spanish guys, Sergio, Larazabal
+* he won't play 4 straight weeks
+* flying private can save you 3 weeks over the course of one year
 
 # NLU Podcast, Episode 379: Lukas Michel
 * mid-am us champion, played in Masters 2020
