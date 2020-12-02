@@ -1,4 +1,8 @@
 # NLU Podcast, Episode 381: Match 3.0 Recap & David McLay Kidd
+* PGL, golf teams, how to transfer fedex points and race to dubai points
+* what is fun about golf? hitting a golf ball over something (water) and hitting over infinitive edges (ocean)
+* golf should be paying for the edges if you want birdies
+* golf courses in the UK do not have driving ranges
 
 # NLU Podcast, Episode 380: Joaquín Niemann
 * started playing golf when 3 yo
