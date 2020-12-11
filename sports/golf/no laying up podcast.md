@@ -1,3 +1,5 @@
+# NLU Podcast, Episode 383: Mayakoba Recap + 2020 Superlatives
+
 # NLU Podcast, Episode 382: Scottie Scheffler
 * his 3wood is old one from nike and he uses it because 3 wood nowadays fly too long and in order to be shorter he would have to add loft
 * he uses metal spikes because of his foot action
@@ -6,7 +8,7 @@
 * when he played with Rickie Fowler he realized people started following his flight, but after couple of holes he lost track of them
 * he played Masters with Tiger and Lowry
 * when he plays his best he has just one feeling/ swing thought
-* Jordan Spieth is very good at missing in good spots 
+* Jordan Spieth is very good at missing in good spots
 
 # NLU Podcast, Episode 381: Match 3.0 Recap & David McLay Kidd
 * PGL, golf teams, how to transfer fedex points and race to dubai points
