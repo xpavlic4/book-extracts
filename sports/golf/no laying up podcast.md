@@ -1,3 +1,15 @@
+# NLU Podcast, Episode 386: Keith Mitchell
+* lives in Sea Island, he needs 10 minutes from his house to sit in a plan
+* he got Latin America TOUR Card first
+* there is very thin line between being nr. 1 and being nr. 10, from college to win on the tour there are many thin lines you have to go through
+* as a rookie, you have to play in every week to get in
+* in order to be the best you have to pass opportunities and rest
+* everybody playes the drive 460 cc
+* guys on the PGA Tour are hitting drivers because they have almost the same precision with driver and 3w or 5w. doesn't make any sense to not hitting driver and losing the distance on the teebox 
+
+
+# NLU Podcast, Episode 385: U.S. Women's Open Recap
+
 # NLU Podcast, Episode 383: Mayakoba Recap + 2020 Superlatives
 
 # NLU Podcast, Episode 382: Scottie Scheffler
