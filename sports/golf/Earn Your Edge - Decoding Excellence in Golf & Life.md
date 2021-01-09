@@ -1,3 +1,12 @@
+# Mark Leischman | Ep/78
+* had lesson once a month when he was very young
+* his dad let him learn everything by making mistakes
+* it's important to learn from better players
+* sometimes you have to be worse to get better
+* his coach want him to think just external, everthing else will take care of itself (stay closer to the ball)
+* his caddy is there to distract him wehn he's playing good and save some energy
+* he loves beinig on the spotlight, use the energy from the crowd and pressure
+
 # Abe Ancer | Ep/076
 * his first time in Augusta
 * his dad was his coach, he taught him being humble
