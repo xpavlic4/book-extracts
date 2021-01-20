@@ -1,3 +1,15 @@
+# NLU Podcast, Episode 388: Holiday Medley, Part II
+* Keith Mitchel: it only to have one week to play Majors, WDC (but it took 5 years of trying)
+* Brooks Koepka: I went from making cuts to top10 and to winning tournaments
+* Stephan Curry: is used to play in front of 19 000 spectators, but he was very very nervous when teeing off in a web.com tour event
+
+# NLU Podcast, Episode 387: Holiday Medley, Part I
+* Lorenzo Vega gave too much time speaking and discussing and and not practicing
+* Popov (LPGA British Open winner)
+* Chris Kirk was an alcoholic
+* Web Simpson saw a belly putter in the shop and tried it out for 9 holes. he bought it afterwards
+
+
 # NLU Podcast, Episode 386: Keith Mitchell
 * lives in Sea Island, he needs 10 minutes from his house to sit in a plan
 * he got Latin America TOUR Card first
@@ -5,7 +17,7 @@
 * as a rookie, you have to play in every week to get in
 * in order to be the best you have to pass opportunities and rest
 * everybody playes the drive 460 cc
-* guys on the PGA Tour are hitting drivers because they have almost the same precision with driver and 3w or 5w. doesn't make any sense to not hitting driver and losing the distance on the teebox 
+* guys on the PGA Tour are hitting drivers because they have almost the same precision with driver and 3w or 5w. doesn't make any sense to not hitting driver and losing the distance on the teebox
 
 
 # NLU Podcast, Episode 385: U.S. Women's Open Recap
