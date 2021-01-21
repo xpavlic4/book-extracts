@@ -1,4 +1,9 @@
 # NLU Podcast, Episode 394: Mike Whan
+* he wants to have more combined events with both men and woman
+* he wants to play Wednesday - Saturday but great Wednesday is always worse as worst Sunday
+* denied to go into USGA CEO position
+* he refused the offer when his kids was small
+
 
 # NLU Podcast, Episode 388: Holiday Medley, Part II
 * Keith Mitchel: it only to have one week to play Majors, WDC (but it took 5 years of trying)
