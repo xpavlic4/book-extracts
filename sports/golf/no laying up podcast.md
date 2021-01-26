@@ -1,3 +1,6 @@
+# NLU Podcast, Episode 395: American Express Recap, Diamond Resorts, Abu Dhabi
+* LPGA Tournament was a disaster from TV, it was a awesome tournament
+
 # NLU Podcast, Episode 394: Mike Whan
 * he wants to have more combined events with both men and woman
 * he wants to play Wednesday - Saturday but great Wednesday is always worse as worst Sunday
