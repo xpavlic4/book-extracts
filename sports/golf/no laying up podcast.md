@@ -1,3 +1,6 @@
+# NLU Podcast, Episode 396: Tommy Fleetwood
+* he wants to win the Open, that's his nr.1 event
+
 # NLU Podcast, Episode 395: American Express Recap, Diamond Resorts, Abu Dhabi
 * LPGA Tournament was a disaster from TV, it was a awesome tournament
 
