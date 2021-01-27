@@ -1,4 +1,6 @@
 # 18Strong podcast
+# 310: Blair Wheeler: An 11-Handicap documenting his golf journey because it “Sucks to Suck.”
+* 
 # Master The Mental Side of Golf
 * there are two types of golfers, mastery golfer and ego golfer.
 
