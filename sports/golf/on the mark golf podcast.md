@@ -1,3 +1,7 @@
+# Dr. Bob Winters on Goals, Goal-setting and Managing Expectations
+* play your game, don't worry about other players
+* 
+
 # Mark Broadie with Strokes Gained Insights to Lower Your Scores
 * off the tee - avoid OOB at all cost by moving your shot pattern (if you hit 1 out of 50 into OOB it's ok)
 * even the worst accuracy hitters on tour miss just only one more fairway to the average
