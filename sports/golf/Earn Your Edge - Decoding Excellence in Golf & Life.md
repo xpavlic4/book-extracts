@@ -1,3 +1,8 @@
+# Robert Rock | Ep/079
+* he was a teaching pro in UK, he drove the ball very well
+* he won some tournaments in his region and got invitation into European Tour events
+
+
 # Mark Leischman | Ep/78
 * had lesson once a month when he was very young
 * his dad let him learn everything by making mistakes
