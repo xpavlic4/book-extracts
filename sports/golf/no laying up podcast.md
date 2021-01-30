@@ -2,22 +2,21 @@
 * he wants to win the Open, that's his nr.1 event
 
 # NLU Podcast, Episode 395: American Express Recap, Diamond Resorts, Abu Dhabi
-* LPGA Tournament was a disaster from TV, it was a awesome tournament
+* LPGA Tournament was a disaster from TV, it was an awesome tournament
 
 # NLU Podcast, Episode 394: Mike Whan
 * he wants to have more combined events with both men and woman
-* he wants to play Wednesday - Saturday but great Wednesday is always worse as worst Sunday
-* denied to go into USGA CEO position
+* he wants to play Wednesday - Saturday but great Wednesday is always worse than worst Sunday
+* denied going into USGA CEO position
 * he refused the offer when his kids was small
-
 
 # NLU Podcast, Episode 388: Holiday Medley, Part II
 * Keith Mitchel: it only to have one week to play Majors, WDC (but it took 5 years of trying)
 * Brooks Koepka: I went from making cuts to top10 and to winning tournaments
-* Stephan Curry: is used to play in front of 19 000 spectators, but he was very very nervous when teeing off in a web.com tour event
+* Stephan Curry: is used to play in front of 19 000 spectators, but he was very nervous when teeing off in a web.com tour event
 
 # NLU Podcast, Episode 387: Holiday Medley, Part I
-* Lorenzo Vega gave too much time speaking and discussing and and not practicing
+* Lorenzo Vega gave too much time speaking and discussing and not practicing
 * Popov (LPGA British Open winner)
 * Chris Kirk was an alcoholic
 * Web Simpson saw a belly putter in the shop and tried it out for 9 holes. he bought it afterwards
@@ -29,8 +28,8 @@
 * there is very thin line between being nr. 1 and being nr. 10, from college to win on the tour there are many thin lines you have to go through
 * as a rookie, you have to play in every week to get in
 * in order to be the best you have to pass opportunities and rest
-* everybody playes the drive 460 cc
-* guys on the PGA Tour are hitting drivers because they have almost the same precision with driver and 3w or 5w. doesn't make any sense to not hitting driver and losing the distance on the teebox
+* everybody plays the drive 460 cc
+* guys on the PGA Tour are hitting drivers because they have almost the same precision with a driver and a 3w or a 5w. doesn't make any sense to not hitting driver and losing the distance on the teebox
 
 
 # NLU Podcast, Episode 385: U.S. Women's Open Recap
@@ -38,11 +37,11 @@
 # NLU Podcast, Episode 383: Mayakoba Recap + 2020 Superlatives
 
 # NLU Podcast, Episode 382: Scottie Scheffler
-* his 3wood is old one from nike and he uses it because 3 wood nowadays fly too long and in order to be shorter he would have to add loft
+* his 3wood is old one from nike, and he uses it because 3 wood nowadays fly too long and in order to be shorter he would have to add loft
 * he uses metal spikes because of his foot action
 * Corn Ferry tour vs PGA Tour: Korn ferry is birdie show, PGA Tour is more dangerous, difficult rough, faster greens
 * why is he not winning? he is losing his shots in the beginning of the week
-* when he played with Rickie Fowler he realized people started following his flight, but after couple of holes he lost track of them
+* when he played with Rickie Fowler he realized people started following his flight, but after a couple of holes he lost track of them
 * he played Masters with Tiger and Lowry
 * when he plays his best he has just one feeling/ swing thought
 * Jordan Spieth is very good at missing in good spots
@@ -69,12 +68,12 @@
 * every invitee to Augusta can play the course
 * the course is completely different in November
 * he went into the Augusta store and met Adam Scott
-* he know he has to be better in long game (he can hit 5 out of 10 through target)
+* he knows he has to be better in long game (he can hit 5 out of 10 through target)
 * Tiger Woods is amazing how he changed things, because it is very difficult for someone who has been playing so long to change anything
 
 
 # NLU Podcast, Episode 378: Stephen Curry
-*  started as 9 yo, mostly in the summer when his dad didn't play in NBA
+* started as 9 yo, mostly in the summer when his dad didn't play in NBA
 * he plays maybe twice a month during the season
 * do not burn yourself in the practice rounds, otherwise you have no power on Thursday and Friday
 * he does Trackman very sporadic
@@ -89,18 +88,17 @@
 # NLU Podcast, Episode 373: Masters Preview
 
 # NLU Podcast, Episode 372: Wright Thompson on The Masters
-* there is only Masters and the British Open, the 3rd is US Open and PGA doesn't even exist
+* there is only the Masters tournament and the British Open, the 3rd is US Open and PGA doesn't even exist
 * pros have every club built specifically for them
-
 
 # NLU Podcast, Episode 371: Every hole at Augusta National with Matty Kelly (Marc Leishman's caddie)
 * 6500 dollars/week paying for a house at Augusta
 * caddies discuss among themselves how greens at Augusta National changed, because the club doesn't say anything official
-* you can get away in Augusta when your short game is sharp and you missed it in right places
+* you can get away in Augusta when your short game is sharp, and you missed it in right places
 * caddie of Mark Leischman watches early coverage in TV to get some tips how to play
-* nr10 the more you hook it from the tee box the better
-* nr11 miss the green always, avoid the water at all cost
-* nr18, Bryson is going to hit over bunkers on the left
+* hole nr10 the more you hook it from the tee box the better
+* hole nr11 always miss the green, avoid the water at all cost
+* hole nr18, Bryson is going to hit over bunkers on the left
 
 # NLU Podcast, Episode 369: Jim Urbina
 * you are not a golf course architect, you are landscape planner
@@ -139,6 +137,7 @@
 
 # NLU Podcast, Episode 309: 5 Random Topics, Show and Tell Style
 * every par 3 with a tree is called "par 3 dogleg"
+
 # NLU Podcast, Episode 308: Webb Simpson
 * his us open plan: avoid big numbers, make 8-10 footers
 
