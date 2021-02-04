@@ -1,7 +1,11 @@
 # Robert Rock | Ep/079
 * he was a teaching pro in UK, he drove the ball very well
 * he won some tournaments in his region and got invitation into European Tour events
-
+* he is well early ahead of his tee-time, 2.5 hours early
+* he couldn't afford to buy a pro lesson when he was very young
+* having a nice back-swing alone doesn't mean much
+* Thomas Bjoern gave him chipping lesson when they were in Hongkong
+* what advice would you give yourself when you were 18yo? I can be the best
 
 # Mark Leischman | Ep/78
 * had lesson once a month when he was very young
