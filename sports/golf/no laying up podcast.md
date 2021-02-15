@@ -1,3 +1,10 @@
+# NLU Podcast, Episode 400: Kamaiu Johnson
+* hang out with people who are better than you
+* he can hit the driver 310, but he is dead straight
+* Q-Schools are extremely expensive
+* golf is a game of misses, if you miss it good you can survive
+
+
 # NLU Podcast, Episode 396: Tommy Fleetwood
 * he wants to win the Open, that's his nr.1 event
 
