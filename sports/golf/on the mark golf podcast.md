@@ -1,3 +1,14 @@
+# Dr. Patrick Cohn Delves into Why Golfers Choke Under Pressur‪e‬
+* being a perfectonist is double edge sword, it can push you, but also holds you back
+* "I am only as good as my warmup" is myth. These two doesn't have to relate so make no expectations.
+* warmup is not a practice session, no tweaks, no swing changes
+* he is teaching: no expectation, high confidence, focusing on manageble things (pick smart target)
+* pre-round gitters gives you focus, but if you fear of outcome that's bad
+* where you fear the most, and who you are most concerned about
+* first step is to be aware of things
+* post-shot rountine: swing one more time and feel it right
+* peaksports.com
+
 # Dr. Bob Winters on Goals, Goal-setting and Managing Expectations
 * play your game, don't worry about other players
 * 

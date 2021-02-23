@@ -1,3 +1,11 @@
+# NLU Podcast, Episode 403, The Genesis Open
+* missed 3 feet putt on the last
+
+# Justin Suh
+* as a PRO, you have to rest. Just walk on the beach or do something unrelated to golf.
+* if you have a chance to travel do it, you see how people live in other parts of the world
+* he is happy that he can contend, not that he won
+
 # NLU Podcast, Episode 400: Kamaiu Johnson
 * hang out with people who are better than you
 * he can hit the driver 310, but he is dead straight
