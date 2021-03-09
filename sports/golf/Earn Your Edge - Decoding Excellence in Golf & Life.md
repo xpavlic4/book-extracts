@@ -1,3 +1,11 @@
+# Pete Cowen
+* he told his students (pros) once you leave there is no way back to me unless we sign some kind of contract (get paid when top10)
+  he also didn't want to be paid if a player didn't make cut
+* there has to be a meaning in every shot you hit
+* you are the best psychologist 
+* when he was Irish coach he challenged 13yo Rory McIlroy to hit impossible high sandshot and Rory didn't give up and worked on that 
+
+
 # Robert Rock | Ep/079
 * he was a teaching pro in UK, he drove the ball very well
 * he won some tournaments in his region and got invitation into European Tour events
