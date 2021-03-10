@@ -1,3 +1,8 @@
+# NLU Podcast, Episode 408, Players preview
+* Kevin Na would give Tony Finau a hint: just be more agressive
+* there are statisticians on the tour and they they tell you it is better to miss left here when the flag is here on every course
+
+
 # NLU Podcast, Episode 403, The Genesis Open
 * missed 3 feet putt on the last
 
