@@ -1,3 +1,12 @@
+# Hunter Maham
+* it's important to have someone who can trust when you are young and have money
+* works with Sean Foley right now
+* ball-striking is the most important thing in golf
+* someone has many swing thoughts, DJ is very fluid, Bryson likes to takes everything into account
+
+# NLU Podcast, Episode 404, Chip Beck
+* all good players have someone with great athleticism in the family genes
+
 # NLU Podcast, Episode 408, Players preview
 * Kevin Na would give Tony Finau a hint: just be more agressive
 * there are statisticians on the tour and they they tell you it is better to miss left here when the flag is here on every course

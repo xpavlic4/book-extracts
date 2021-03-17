@@ -1,3 +1,7 @@
+# 496. Kiel Alderink
+* only 25% people should think in small targets
+
+
 # Dr. Patrick Cohn Delves into Why Golfers Choke Under Pressur‪e‬
 * being a perfectonist is double edge sword, it can push you, but also holds you back
 * "I am only as good as my warmup" is myth. These two doesn't have to relate so make no expectations.
