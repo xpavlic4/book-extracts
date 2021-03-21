@@ -1,4 +1,18 @@
 # golfstateofmind.com
+# Mindset
+## Fixed mindset
+* you are born with your talents
+* the result is the most important thing
+* scores defines you who you are
+* mistakes show your weaknesess
+## Mastery mindset
+* talent and skills are learnt
+* have a long-term view of success
+* embrace failures and mistakes
+* they are more optimistic and motivated
+* they are humble and don't compare to others
+
+
 ## THE ART OF PUTTING
 * The athletic mind doesn’t do technical instruction,  it’s intuitive and only in the present moment
 
