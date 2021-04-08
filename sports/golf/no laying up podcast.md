@@ -1,3 +1,15 @@
+# Mav McNealy
+* there are 3 tours within PGA TOUR, the first one is "just got on the tour",
+  "I have played the Tour before" and top 50 players (they play WGC, Majors etc)
+* he tracks "strikes" i.e. penalties, two chips and 3-putts
+* players on PGA Tour have his strengths
+* as a PGA Tour player you do not have time to practice at home, you have to rest
+* he worked out after he played on the round
+* surging - having a new swing-thoug every day
+* his girlfriend tells him to be patient 
+* he has no social media accounts
+* doint more is sometimes not the best way, be rest and spend a couple of days out of golf 
+
 # Hunter Maham
 * it's important to have someone who can trust when you are young and have money
 * works with Sean Foley right now
