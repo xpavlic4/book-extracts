@@ -1,5 +1,6 @@
 # Me and My Golf
 * first 5-7 seconds of a youtube video are crucial, no introductions etc, explain what the video is going to be about
+* if you want to have a Youtube channel just start recording videos in landscape mode and you will see
 
 # Pete Cowen
 * he told his students (pros) once you leave there is no way back to me unless we sign some kind of contract (get paid when top10)
