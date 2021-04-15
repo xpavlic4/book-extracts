@@ -1,3 +1,6 @@
+# Me and My Golf
+* first 5-7 seconds of a youtube video are crucial, no introductions etc, explain what the video is going to be about
+
 # Pete Cowen
 * he told his students (pros) once you leave there is no way back to me unless we sign some kind of contract (get paid when top10)
   he also didn't want to be paid if a player didn't make cut
