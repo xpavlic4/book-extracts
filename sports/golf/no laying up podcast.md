@@ -1,3 +1,11 @@
+# Jordan Spieth
+* work smarter instead of working from sunrise to sunset
+* when he played with Tiger when he was struggling Tiger never said anything negative about himself
+
+
+# Troy Mullins
+* her father had world record in track running
+
 # Mav McNealy
 * there are 3 tours within PGA TOUR, the first one is "just got on the tour",
   "I have played the Tour before" and top 50 players (they play WGC, Majors etc)
@@ -20,7 +28,7 @@
 * all good players have someone with great athleticism in the family genes
 
 # NLU Podcast, Episode 408, Players preview
-* Kevin Na would give Tony Finau a hint: just be more agressive
+* Kevin Na would give Tony Finau a hint: just be more aggressive
 * there are statisticians on the tour and they they tell you it is better to miss left here when the flag is here on every course
 
 
