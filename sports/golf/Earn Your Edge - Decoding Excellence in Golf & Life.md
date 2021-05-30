@@ -1,3 +1,12 @@
+# Carlos Ortiz
+* he was always second best, but persisted and work on his game
+* once he was in the age when girls and parties were relevant, his father told him: do whatever you want, but you wont be your best version 
+when you drink before the tournament
+* when he won Houston open he didn't do anything special, just everthing clicked and he scored
+* playing good doesn't mean scoring
+* how you hit it on the driving range doesn't correlate with how you are going to play on the course
+* his warmup: find the rhythm with his driver
+
 # Me and My Golf
 * first 5-7 seconds of a youtube video are crucial, no introductions etc, explain what the video is going to be about
 * if you want to have a Youtube channel just start recording videos in landscape mode and you will see
