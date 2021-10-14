@@ -1,3 +1,7 @@
+# Bob Rotella
+* you have to have a laser vision
+* athletic mind is reacting, unconscious 
+
 # Jordan Spieth
 * work smarter instead of working from sunrise to sunset
 * when he played with Tiger when he was struggling Tiger never said anything negative about himself
