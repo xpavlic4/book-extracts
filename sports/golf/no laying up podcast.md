@@ -1,3 +1,8 @@
+# Jon Rahm
+* has no course strategy, he just looks the pin position and works backwackwards
+* when wantching a DTL video the camera position is crucial
+* every hole in Augusta (except par5) has average over par
+* 
 # Bob Rotella
 * you have to have a laser vision
 * athletic mind is reacting, unconscious 
