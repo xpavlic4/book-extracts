@@ -1,4 +1,11 @@
 # golfstateofmind.com
+# AROUSAL AND AROUSAL CONTROL
+In the moments where you feel your arousal level increasing, breathing is one of your best tools for calming the body down and getting control of your thoughts and emotions.
+Explore these different breathing techniques (do 10 sets of each) and pay attention to how it changes your mental and physical state. The ratios refer to the length of inhale-hold-exhale-hold in seconds.
+
+* Start with “Box Breathing”, which is 1-1-1-1 ratio e.g., inhale through your nose to the count of 4, hold for a count of 4, exhale through your nose or mouth to the count of 4, and hold for 4, then repeat. Try changing the counts to 2 seconds, 3 seconds, or 5 seconds.
+* Next try a 1-1-2-1 technique, which for example would be 6 seconds for the inhale, 6 seconds for the hold, 12 second exhale and 6 second hold.
+* Next try a 1-2-2 technique, which would be a 6 second inhale, 12 second hold and a 12 second exhale (this one is more difficult).
 # Mindset
 ## Fixed mindset
 * you are born with your talents

@@ -1,3 +1,11 @@
+# 573. Justin Leonard
+* if you are a junior golfer, do not think about score all the time
+* every change you have to implement it on your own. it doesn't help if an instructor watches every swing. 
+  if something goes not well during the round you have to fix it without a coach
+* he played the best when he kept it simple
+* he wants to play wedges as low as possible and control spin
+* the ball position when hitting low wedges is back, between middle of the stance and your back foot
+
 # 496. Kiel Alderink
 * only 25% people should think in small targets
 
